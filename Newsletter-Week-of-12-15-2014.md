@@ -4,6 +4,8 @@ EML: http://tinyletter.com/MDAWriter/letters/pulling-weeds-and-planting-flowers 
 
 EML: http://www.tonybates.ca/2014/12/10/a-short-history-of-educational-technology/ (used 12/16)
 
+http://grantland.com/the-triangle/florida-state-university-jameis-winston-scandal-acc/
+
 https://medium.com/message/playing-with-my-son-e5226ff0a7c3
 
 http://www.washingtonpost.com/news/the-intersect/wp/2014/12/15/from-lycos-to-ask-jeeves-to-facebook-tracking-the-20-most-popular-web-sites-every-year-since-1996/
