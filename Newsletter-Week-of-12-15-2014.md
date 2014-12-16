@@ -4,6 +4,12 @@ EML: http://tinyletter.com/MDAWriter/letters/pulling-weeds-and-planting-flowers 
 
 EML: http://www.tonybates.ca/2014/12/10/a-short-history-of-educational-technology/ (used 12/16)
 
+https://medium.com/message/playing-with-my-son-e5226ff0a7c3
+
+http://www.washingtonpost.com/news/the-intersect/wp/2014/12/15/from-lycos-to-ask-jeeves-to-facebook-tracking-the-20-most-popular-web-sites-every-year-since-1996/
+
+http://blog.mrmeyer.com/2014/what-students-do-and-dont-do-in-khan-academy-ctd/
+
 http://josswinn.org/2014/12/social-solidarity-co-operatives-for-higher-education/
 
 http://juliancompagniportis.com/evalGen/?src=FB
