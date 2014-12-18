@@ -2,7 +2,15 @@
 
 EML: http://tinyletter.com/MDAWriter/letters/pulling-weeds-and-planting-flowers (used 12/16)
 
+http://dmlcentral.net/blog/nicole-mirra/ferguson-social-media-and-educational-dialogue
+
+http://mikerosebooks.blogspot.com/2014/12/part-three-responding-to-federal.html
+
 EML: http://www.tonybates.ca/2014/12/10/a-short-history-of-educational-technology/ (used 12/16)
+
+http://blogs.edweek.org/edweek/Bridging-Differences/2014/12/democracy_schools_and_teachers.html
+
+http://tressiemc.com/2014/12/18/a-year-of-sociology-higher-ed-and-blood-letting/
 
 http://grantland.com/the-triangle/florida-state-university-jameis-winston-scandal-acc/
 
