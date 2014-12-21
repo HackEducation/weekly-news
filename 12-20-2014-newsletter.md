@@ -1,5 +1,7 @@
 ##Links for Hack Education and EML Newsletters##
 
+**Newsletter link**: http://tinyletter.com/audreywatters/letters/hack-education-weekly-newsletter-no-91
+
 EML: http://tinyletter.com/MDAWriter/letters/pulling-weeds-and-planting-flowers (used 12/16)
 
 http://opinionator.blogs.nytimes.com/2014/12/14/did-salaita-cross-the-line-of-civility/
