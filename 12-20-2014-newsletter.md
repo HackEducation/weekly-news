@@ -4,17 +4,17 @@ EML: http://tinyletter.com/MDAWriter/letters/pulling-weeds-and-planting-flowers 
 
 http://opinionator.blogs.nytimes.com/2014/12/14/did-salaita-cross-the-line-of-civility/
 
-https://medium.com/the-archipelago/we-should-raise-our-brown-kids-to-talk-back-79bf219f77fa
+https://medium.com/the-archipelago/we-should-raise-our-brown-kids-to-talk-back-79bf219f77fa (Hack Education 12/20)
 
-http://www.bbc.com/future/story/20141218-the-hidden-home-of-christmas
+http://www.bbc.com/future/story/20141218-the-hidden-home-of-christmas (Hack Education 12/20)
 
-http://nerd.kelseyinnis.com/blog/2014/12/19/your-job-is-political-tech-money-in-politics/
+http://nerd.kelseyinnis.com/blog/2014/12/19/your-job-is-political-tech-money-in-politics/ (Hack Education 12/20)
 
 http://dmlcentral.net/blog/nicole-mirra/ferguson-social-media-and-educational-dialogue
 
 http://www.nais.org/Magazines-Newsletters/ISMagazine/Pages/OutSide-the-Skinner-Box.aspx
 
-http://www.newyorker.com/humor/daily-shouts/ayn-rand-reviews-childrens-movies
+http://www.newyorker.com/humor/daily-shouts/ayn-rand-reviews-childrens-movies (Hack Education 12/20)
 
 http://mikerosebooks.blogspot.com/2014/12/part-three-responding-to-federal.html
 
@@ -30,7 +30,7 @@ http://www.roughtype.com/?p=5316
 
 http://thejosevilson.com/race-discourse-hopefully-wont-go/
 
-http://qz.com/312537/the-secret-to-the-uber-economy-is-wealth-inequality/
+http://qz.com/312537/the-secret-to-the-uber-economy-is-wealth-inequality/ (Hack Education 12/20)
 
 https://medium.com/message/playing-with-my-son-e5226ff0a7c3
 
