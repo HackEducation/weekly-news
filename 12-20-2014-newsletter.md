@@ -2,6 +2,14 @@
 
 EML: http://tinyletter.com/MDAWriter/letters/pulling-weeds-and-planting-flowers (used 12/16)
 
+http://opinionator.blogs.nytimes.com/2014/12/14/did-salaita-cross-the-line-of-civility/
+
+https://medium.com/the-archipelago/we-should-raise-our-brown-kids-to-talk-back-79bf219f77fa
+
+http://www.bbc.com/future/story/20141218-the-hidden-home-of-christmas
+
+http://nerd.kelseyinnis.com/blog/2014/12/19/your-job-is-political-tech-money-in-politics/
+
 http://dmlcentral.net/blog/nicole-mirra/ferguson-social-media-and-educational-dialogue
 
 http://www.nais.org/Magazines-Newsletters/ISMagazine/Pages/OutSide-the-Skinner-Box.aspx
