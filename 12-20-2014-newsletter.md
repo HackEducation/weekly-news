@@ -12,9 +12,9 @@ http://www.bbc.com/future/story/20141218-the-hidden-home-of-christmas (Hack Educ
 
 http://nerd.kelseyinnis.com/blog/2014/12/19/your-job-is-political-tech-money-in-politics/ (Hack Education 12/20)
 
-http://dmlcentral.net/blog/nicole-mirra/ferguson-social-media-and-educational-dialogue
+http://dmlcentral.net/blog/nicole-mirra/ferguson-social-media-and-educational-dialogue (EML 12/23)
 
-http://www.nais.org/Magazines-Newsletters/ISMagazine/Pages/OutSide-the-Skinner-Box.aspx
+http://www.nais.org/Magazines-Newsletters/ISMagazine/Pages/OutSide-the-Skinner-Box.aspx (EML 12/23)
 
 http://www.newyorker.com/humor/daily-shouts/ayn-rand-reviews-childrens-movies (Hack Education 12/20)
 
@@ -22,7 +22,7 @@ http://mikerosebooks.blogspot.com/2014/12/part-three-responding-to-federal.html
 
 EML: http://www.tonybates.ca/2014/12/10/a-short-history-of-educational-technology/ (used 12/16)
 
-http://blogs.edweek.org/edweek/Bridging-Differences/2014/12/democracy_schools_and_teachers.html
+http://blogs.edweek.org/edweek/Bridging-Differences/2014/12/democracy_schools_and_teachers.html (EML 12/23)
 
 http://tressiemc.com/2014/12/18/a-year-of-sociology-higher-ed-and-blood-letting/
 
@@ -36,9 +36,9 @@ http://qz.com/312537/the-secret-to-the-uber-economy-is-wealth-inequality/ (Hack 
 
 https://medium.com/message/playing-with-my-son-e5226ff0a7c3
 
-http://www.washingtonpost.com/news/the-intersect/wp/2014/12/15/from-lycos-to-ask-jeeves-to-facebook-tracking-the-20-most-popular-web-sites-every-year-since-1996/
+http://www.washingtonpost.com/news/the-intersect/wp/2014/12/15/from-lycos-to-ask-jeeves-to-facebook-tracking-the-20-most-popular-web-sites-every-year-since-1996/ (EML 12/23)
 
-http://blog.mrmeyer.com/2014/what-students-do-and-dont-do-in-khan-academy-ctd/
+http://blog.mrmeyer.com/2014/what-students-do-and-dont-do-in-khan-academy-ctd/ (EML 12/23)
 
 http://josswinn.org/2014/12/social-solidarity-co-operatives-for-higher-education/
 
