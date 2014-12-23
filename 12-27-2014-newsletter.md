@@ -1,4 +1,4 @@
-##Hack Education and EML Newsletters##
+##Hack Education Newsletter##
 
 http://cogdogblog.com/2014/12/21/federated-index-cards/
 
