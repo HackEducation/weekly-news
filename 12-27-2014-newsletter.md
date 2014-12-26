@@ -4,6 +4,8 @@ http://cogdogblog.com/2014/12/21/federated-index-cards/
 
 http://www.roughtype.com/?p=5364
 
+http://www.dailydot.com/technology/anonymous-apps-teens-2014/
+
 http://davecormier.com/edblog/2014/12/21/learnings-first-principle-the-most-important-thing-i-learned-this-year/
 
 http://www.theawl.com/2014/12/dear-kids
