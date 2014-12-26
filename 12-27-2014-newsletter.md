@@ -8,6 +8,8 @@ http://davecormier.com/edblog/2014/12/21/learnings-first-principle-the-most-impo
 
 http://www.theawl.com/2014/12/dear-kids
 
+http://meyerweb.com/eric/thoughts/2014/12/24/inadvertent-algorithmic-cruelty/
+
 https://medium.com/@chadsansing/we-will-all-be-illiterate-soon-801ac885889b
 
 https://medium.com/@anya1anya/why-better-tests-better-world-b833f817543
