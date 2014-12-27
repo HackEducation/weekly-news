@@ -1,4 +1,5 @@
 ##Hack Education Newsletter##
+(No newsletter sent this week.)
 
 http://cogdogblog.com/2014/12/21/federated-index-cards/
 
