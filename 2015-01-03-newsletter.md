@@ -1,0 +1,7 @@
+## Hack Education Weekly Newsletter
+
+(There was no newsletter sent on December 27, 2014. See that file for more stories.)
+
+http://utotherescue.blogspot.com/2014/12/trends-we-can-work-with-higher-ed-in.html
+
+http://www.universityaffairs.ca/opinion/speculative-diction/2014-look-back/
