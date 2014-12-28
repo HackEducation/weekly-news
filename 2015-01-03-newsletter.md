@@ -5,3 +5,5 @@
 http://utotherescue.blogspot.com/2014/12/trends-we-can-work-with-higher-ed-in.html
 
 http://www.universityaffairs.ca/opinion/speculative-diction/2014-look-back/
+
+http://www.nybooks.com/blogs/nyrblog/2014/dec/19/poor-imitation-alan-turing/
