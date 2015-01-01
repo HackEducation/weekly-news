@@ -4,6 +4,10 @@
 
 http://utotherescue.blogspot.com/2014/12/trends-we-can-work-with-higher-ed-in.html
 
+http://opencontent.org/blog/archives/3703
+
+http://cogdogblog.com/2014/12/31/dont-stop-the-fedwiki-party/
+
 http://www.theguardian.com/news/2014/dec/30/-sp-rebecca-solnit-listen-up-women-are-telling-their-story-now
 
 http://davecormier.com/edblog/2014/12/30/theres-something-wrong-in-education-a-response-to-stephen-downes/
