@@ -4,6 +4,12 @@
 
 http://utotherescue.blogspot.com/2014/12/trends-we-can-work-with-higher-ed-in.html
 
+http://mfeldstein.com/harmonizing-learning-education/
+
+http://darcynorman.net/2015/01/01/reclaiming-educational-technology-fostering-a-culture-of-innovation/
+
+https://catherinecronin.wordpress.com/2015/01/01/fedwiki2014/
+
 http://opencontent.org/blog/archives/3703
 
 http://cogdogblog.com/2014/12/31/dont-stop-the-fedwiki-party/
