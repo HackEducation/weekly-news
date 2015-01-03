@@ -1,4 +1,5 @@
 ## Hack Education Weekly Newsletter
+**Link**: http://tinyletter.com/audreywatters/letters/hack-education-weekly-newsletter-no-92
 
 (There was no newsletter sent on December 27, 2014. See that file for more stories.)
 
