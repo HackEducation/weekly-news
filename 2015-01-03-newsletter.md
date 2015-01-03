@@ -4,6 +4,18 @@
 
 http://utotherescue.blogspot.com/2014/12/trends-we-can-work-with-higher-ed-in.html
 
+http://www.npr.org/blogs/ed/2014/12/26/373268439/15-education-predictions-for-2015
+
+http://sarahwerner.net/blog/2015/01/being-a-reader-again-and-still/
+
+http://www.thenation.com/article/193121/mass-incarcerations-collateral-damage-children-left-behind
+
+http://fivethirtyeight.com/features/there-are-way-too-many-best-of-2014-lists/
+
+http://blog.jonudell.net/2015/01/02/how-federated-wiki-neighborhoods-grow-and-change/
+
+https://medium.com/message/harassed-by-algorithms-f2b8229488df
+
 http://mfeldstein.com/harmonizing-learning-education/
 
 http://darcynorman.net/2015/01/01/reclaiming-educational-technology-fostering-a-culture-of-innovation/
