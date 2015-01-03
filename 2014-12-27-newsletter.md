@@ -1,5 +1,5 @@
 ##Hack Education Newsletter##
-(No newsletter sent this week.)
+(No newsletter sent this week. These were included in the 1-3-2015 newsletter: http://tinyletter.com/audreywatters/letters/hack-education-weekly-newsletter-no-92)
 
 http://cogdogblog.com/2014/12/21/federated-index-cards/
 
