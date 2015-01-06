@@ -1,5 +1,13 @@
 ##Hack Education Weekly Newsletter##
 
+http://www.nytimes.com/2015/01/04/magazine/inside-a-chinese-test-prep-factory.html
+
+http://davecormier.com/edblog/2015/01/05/trying-to-solve-for-the-problem-of-education-in-2015/
+
+http://halfanhour.blogspot.com/2015/01/a-year-in-photos.html
+
+http://www.richard-hall.org/2015/01/06/on-academic-hopelessness/
+
 http://larrycuban.wordpress.com/2015/01/04/student-compliance-and-buy-in-to-a-class/
 
 http://funnymonkey.com/blog/edcamp-monsanto
