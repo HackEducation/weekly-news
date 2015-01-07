@@ -1,6 +1,16 @@
 ##Hack Education Weekly Newsletter##
 
+http://www.hybridpedagogy.com/journal/open-digital-pedagogy-critical-pedagogy/
+
+https://chroniclevitae.com/news/852-who-controls-your-dissertation
+
+https://francesbell.wordpress.com/2015/01/05/reflection-on-fedwiki-two-tales-of-two-forks/
+
+http://www.edugeekjournal.com/2015/01/05/the-underlying-barrier-to-education-reform/
+
 http://fusion.net/story/36636/in-the-2000s-there-will-be-only-answers/
+
+http://thejournal.com/articles/2015/01/05/what-will-the-learning-device-of-the-future-look-like.aspx
 
 https://medium.com/@ev/a-mile-wide-an-inch-deep-48f36e48d4cb
 
