@@ -1,5 +1,15 @@
 ##Hack Education Weekly Newsletter##
 
+https://medium.com/@ev/a-mile-wide-an-inch-deep-48f36e48d4cb
+
+http://yasminnair.net/content/solidarity-without-affect-mla-subconference-enters-its-second-year
+
+http://xkcd.com/1470/
+
+http://www.theatlantic.com/education/archive/2015/01/group-projects-and-the-secretary-effect/384104/
+
+http://boundary2.org/2015/01/07/warding-off-general-ludd-the-absurdity-of-the-luddite-awards-2/
+
 http://www.nytimes.com/2015/01/04/magazine/inside-a-chinese-test-prep-factory.html
 
 http://davecormier.com/edblog/2015/01/05/trying-to-solve-for-the-problem-of-education-in-2015/
