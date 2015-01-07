@@ -1,5 +1,7 @@
 ##Hack Education Weekly Newsletter##
 
+http://fusion.net/story/36636/in-the-2000s-there-will-be-only-answers/
+
 https://medium.com/@ev/a-mile-wide-an-inch-deep-48f36e48d4cb
 
 http://yasminnair.net/content/solidarity-without-affect-mla-subconference-enters-its-second-year
