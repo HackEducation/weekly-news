@@ -1,5 +1,11 @@
 ##Hack Education Weekly Newsletter##
 
+http://laughingsquid.com/lively-giant-panda-cub-gleefully-enjoys-her-very-first-time-playing-in-the-snow/
+
+http://donaldclarkplanb.blogspot.com/2015/01/character-education-assassination.html
+
+http://www.mcsweeneys.net/articles/course-catalog-for-children-who-cant-get-their-heads-out-of-their-asses
+
 http://www.hybridpedagogy.com/journal/open-digital-pedagogy-critical-pedagogy/
 
 https://chroniclevitae.com/news/852-who-controls-your-dissertation
