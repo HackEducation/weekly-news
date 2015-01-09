@@ -1,5 +1,11 @@
 ##Hack Education Weekly Newsletter##
 
+https://medium.com/backchannel/internet-under-fire-gets-new-manifests-207a922b459e
+
+http://timklapdor.wordpress.com/2015/01/09/the-fedwiki-happening/
+
+https://jennymackness.wordpress.com/2015/01/01/some-final-thoughts-about-fedwikihappening/
+
 http://laughingsquid.com/lively-giant-panda-cub-gleefully-enjoys-her-very-first-time-playing-in-the-snow/
 
 http://donaldclarkplanb.blogspot.com/2015/01/character-education-assassination.html
