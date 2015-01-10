@@ -1,5 +1,11 @@
 ##Hack Education Weekly Newsletter##
 
+https://www.insidehighered.com/blogs/higher-ed-beta/future-learning-what-about-schooling
+
+https://matureagerenaissance.wordpress.com/2015/01/10/a-journey-inward/
+
+http://www.newyorker.com/culture/cultural-comment/unmournable-bodies
+
 http://www.newstatesman.com/laurie-penny/on-nerd-entitlement-rebel-alliance-empire
 
 http://motherboard.vice.com/read/online-dating-is-turning-us-all-into-tamagotchis
