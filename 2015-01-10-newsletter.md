@@ -1,4 +1,5 @@
 ##Hack Education Weekly Newsletter##
+**Link**: http://tinyletter.com/audreywatters/letters/hack-education-weekly-newsletter-no-93
 
 https://www.insidehighered.com/blogs/higher-ed-beta/future-learning-what-about-schooling
 
