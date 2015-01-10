@@ -1,5 +1,15 @@
 ##Hack Education Weekly Newsletter##
 
+http://www.newstatesman.com/laurie-penny/on-nerd-entitlement-rebel-alliance-empire
+
+http://motherboard.vice.com/read/online-dating-is-turning-us-all-into-tamagotchis
+
+http://spokeandhub.wordpress.com/2015/01/09/down-the-rabbit-hole-of-the-fedwiki/
+
+https://drsiobhanodwyer.wordpress.com/2015/01/08/artisanal-academia/
+
+http://www.theatlantic.com/technology/archive/2015/01/teddy-ruxpin-and-the-uncanny-valley/384394/
+
 https://medium.com/backchannel/internet-under-fire-gets-new-manifests-207a922b459e
 
 http://timklapdor.wordpress.com/2015/01/09/the-fedwiki-happening/
