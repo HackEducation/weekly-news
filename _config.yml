@@ -3,7 +3,7 @@ markdown: redcarpet
 highlighter: pygments
 
 # Site settings
-title: "Education News"
+title: "Weekly Newsletter"
 description: > # this means to ignore newlines until "email:"
    A Hack Education Project
 
