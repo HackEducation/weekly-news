@@ -1,5 +1,17 @@
 ## Hack Education Weekly Newsletter
 
+http://nymag.com/daily/intelligencer/2015/01/campbell-brown-school-reform.html
+
+https://schoolfinance101.wordpress.com/2015/01/14/cutting-through-the-stupid-in-the-debate-over-annual-testing/
+
+http://www.newyorker.com/magazine/2015/01/19/know-feel
+
+https://medium.com/message/back-to-the-future-time-travel-and-the-secret-history-of-the-1980s-80bf3c6347cf
+
+http://fusion.net/story/38218/the-appeal-of-facts-that-blow-your-mind-from-the-19th-century-to-buzzfeed/
+
+http://www.psmag.com/navigation/books-and-culture/big-sort-obsession-american-education-ranking-people-95455/
+
 http://motherboard.vice.com/read/online-dating-is-turning-us-all-into-tamagotchis
 
 http://www.theatlantic.com/technology/archive/2015/01/teddy-ruxpin-and-the-uncanny-valley/384394/
