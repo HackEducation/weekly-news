@@ -1,5 +1,9 @@
 ## Hack Education Weekly Newsletter
 
+http://motherboard.vice.com/read/online-dating-is-turning-us-all-into-tamagotchis
+
+http://www.theatlantic.com/technology/archive/2015/01/teddy-ruxpin-and-the-uncanny-valley/384394/
+
 http://www.csmonitor.com/World/Passcode/Passcode-Voices/2015/0113/With-big-data-invading-campus-universities-risk-unfairly-profiling-their-students
 
 http://blog.jonudell.net/2015/01/12/thoughts-in-motion/
