@@ -1,5 +1,13 @@
 ## Hack Education Weekly Newsletter
 
+http://opencontent.org/blog/archives/3732
+
+https://medium.com/matter/i-dont-know-if-je-suis-charlie-c23149eb8f1c
+
+http://www.theatlantic.com/international/archive/2015/01/i-might-be-charlie-hebdo-paris/384501/
+
+http://www.motherjones.com/politics/2014/01/juveniles-kids-solitary-confinement-ohio-new-york
+
 http://nymag.com/daily/intelligencer/2015/01/campbell-brown-school-reform.html
 
 https://schoolfinance101.wordpress.com/2015/01/14/cutting-through-the-stupid-in-the-debate-over-annual-testing/
