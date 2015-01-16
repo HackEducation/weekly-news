@@ -1,5 +1,11 @@
 ## Hack Education Weekly Newsletter
 
+http://www.nytimes.com/2015/01/14/opinion/tom-hanks-on-his-two-years-at-chabot-college.html
+
+http://www.latimes.com/opinion/op-ed/la-oe-0116-pasquale-reputation-repair-digital-history-20150116-story.html
+
+http://www.businessinsider.com/jim-rogers-higher-education-is-a-bubble-2015-1
+
 http://www.theatlantic.com/technology/archive/2015/01/the-cathedral-of-computation/384300/
 
 http://fredrikdeboer.com/2015/01/15/winograds-dilemma/
