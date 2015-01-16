@@ -1,5 +1,13 @@
 ## Hack Education Weekly Newsletter
 
+http://www.theatlantic.com/technology/archive/2015/01/the-cathedral-of-computation/384300/
+
+http://fredrikdeboer.com/2015/01/15/winograds-dilemma/
+
+http://blogs.swarthmore.edu/burke/blog/2015/01/15/nobody-expects-the-facebook-inquisition/
+
+https://grantwiggins.wordpress.com/2015/01/15/on-differentiation-a-reply-to-a-rant-and-a-posing-of-questions/
+
 http://opencontent.org/blog/archives/3732
 
 https://medium.com/matter/i-dont-know-if-je-suis-charlie-c23149eb8f1c
