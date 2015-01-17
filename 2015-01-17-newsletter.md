@@ -1,5 +1,13 @@
 ## Hack Education Weekly Newsletter
 
+http://blogs.swarthmore.edu/burke/blog/2015/01/16/an-ethic-of-care/
+
+http://www.speaker.gov/general/12-taylor-swift-reactions-president-obamas-free-college-idea
+
+http://www.washingtonmonthly.com/college_guide/blog/no_neal_mccluskey_community_co.php
+
+http://www.buzzfeed.com/danieldalton/boss-witch#.qg96P9AZ6
+
 http://www.nytimes.com/2015/01/14/opinion/tom-hanks-on-his-two-years-at-chabot-college.html
 
 http://www.latimes.com/opinion/op-ed/la-oe-0116-pasquale-reputation-repair-digital-history-20150116-story.html
