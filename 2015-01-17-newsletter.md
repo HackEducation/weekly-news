@@ -1,4 +1,5 @@
 ## Hack Education Weekly Newsletter
+**Link**: http://news.hackeducation.com/2015/01/17/newsletter/
 
 http://blogs.swarthmore.edu/burke/blog/2015/01/16/an-ethic-of-care/
 
