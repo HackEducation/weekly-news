@@ -1,5 +1,9 @@
 ## Hack Education Weekly Newsletter
 
+http://www.gardnercampbell.net/blog1/?p=2424
+
+http://edwired.org/2015/01/19/free-for-all/
+
 http://www.publicbooks.org/nonfiction/justice-for-data-janitors
 
 http://america.aljazeera.com/opinions/2015/1/obama-community-collegeproposaleducation.html
