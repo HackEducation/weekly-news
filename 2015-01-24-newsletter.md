@@ -1,5 +1,23 @@
 ## Hack Education Weekly Newsletter
 
+http://edwired.org/2015/01/23/free-for-all-3/
+
+https://modelviewculture.com/pieces/exclusion-and-exceptionality-in-the-pipeline
+
+http://opencontent.org/blog/archives/3743
+
+http://blog.jonudell.net/2015/01/22/a-federated-wikipedia/
+
+http://suburbdad.blogspot.com/2015/01/nudges-and-parable-of-email.html
+
+http://welcometobusinesstown.tumblr.com/
+
+http://gizmodo.com/oregon-was-founded-as-a-racist-utopia-1539567040
+
+https://ceabbate.wordpress.com/2015/01/20/gender-based-violence-responsibility-and-john-mcadams/
+
+http://fortune.com/2015/01/21/everybody-hates-pearson/
+
 https://larrycuban.wordpress.com/2015/01/21/will-teaching-and-learning-become-automated-part-3/
 
 http://edwired.org/2015/01/21/free-for-all-2/
