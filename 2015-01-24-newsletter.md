@@ -1,5 +1,15 @@
 ## Hack Education Weekly Newsletter
 
+http://boingboing.net/2015/01/23/radical-brownies-girls-of-col.html
+
+http://neatoday.org/2015/01/23/cameras-in-the-classroom-big-brother-evaluating/
+
+https://www.insidehighered.com/blogs/just-visiting/asu-new-american-university-its-terrifying
+
+http://hapgood.us/2015/01/23/users/
+
+http://www.theatlantic.com/technology/archive/2015/01/why-i-am-not-a-maker/384767/
+
 http://edwired.org/2015/01/23/free-for-all-3/
 
 https://modelviewculture.com/pieces/exclusion-and-exceptionality-in-the-pipeline
