@@ -1,4 +1,5 @@
 ## Hack Education Weekly Newsletter
+**Link**: http://tinyletter.com/audreywatters/letters/hack-education-weekly-newsletter-no-95
 
 http://boingboing.net/2015/01/23/radical-brownies-girls-of-col.html
 
