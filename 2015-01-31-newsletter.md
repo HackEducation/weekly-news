@@ -1,5 +1,11 @@
 ## Hack Education Weekly Newsletter
 
+https://larrycuban.wordpress.com/2015/01/27/confessions-of-a-skeptic-of-computers-in-schools-part-2/
+
+http://www.wired.com/2015/01/rodney-mullen/
+
+http://rafranzdavis.com/because-black-kids-get-suspended-for-talking/
+
 https://sports.vice.com/article/inside-an-elite-high-schools-culture-of-hazing-and-bullying/
 
 http://scripting.com/2015/01/25/aNoteAboutBlogging.html
