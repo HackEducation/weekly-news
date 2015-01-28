@@ -1,5 +1,15 @@
 ## Hack Education Weekly Newsletter
 
+http://www.theatlantic.com/technology/archive/2015/01/introducing-the-supertweet/384730/
+
+http://femfreq.tumblr.com/post/109319269825/one-week-of-harassment-on-twitter
+
+https://www.insidehighered.com/blogs/college-ready-writing/pedagogies-care-moocmooc-post
+
+http://thenewinquiry.com/essays/cloudy-logic/
+
+https://www.themarshallproject.org/2015/01/26/in-your-face
+
 https://larrycuban.wordpress.com/2015/01/27/confessions-of-a-skeptic-of-computers-in-schools-part-2/
 
 http://www.wired.com/2015/01/rodney-mullen/
