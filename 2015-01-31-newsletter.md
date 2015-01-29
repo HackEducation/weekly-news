@@ -1,5 +1,21 @@
 ## Hack Education Weekly Newsletter
 
+http://newleftreview.org/II/91/evgeny-morozov-socialize-the-data-centres
+
+http://dish.andrewsullivan.com/2015/01/28/a-note-to-my-readers/
+
+http://theweek.com/articles/536184
+
+http://blog.ameliagreenhall.com/post/start-your-own-brand-everything-i-know-about-starting-collaborative-feminist-publications
+
+http://www.theatlantic.com/education/archive/2015/01/higher-education-is-not-a-mixtape/384845/
+
+https://medium.com/message/never-trust-a-corporation-to-do-a-librarys-job-f58db4673351
+
+http://www.theverge.com/2015/1/28/7923491/anita-sarkeesian-week-of-sexist-twitter-harassment
+
+http://blogs.edweek.org/edweek/DigitalEducation/2015/01/is_grit_racist.html
+
 http://www.theatlantic.com/technology/archive/2015/01/introducing-the-supertweet/384730/
 
 http://femfreq.tumblr.com/post/109319269825/one-week-of-harassment-on-twitter
