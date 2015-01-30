@@ -1,5 +1,7 @@
 ## Hack Education Weekly Newsletter
 
+http://chronicle.com/article/The-Day-the-Purpose-of-College/151359/
+
 http://money.cnn.com/2015/01/29/technology/chris-messina-non-monogamy/index.html
 
 http://www.slate.com/articles/technology/technology/2014/10/google_self_driving_car_it_may_never_actually_happen.html
