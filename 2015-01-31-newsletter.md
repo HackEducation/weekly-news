@@ -1,5 +1,17 @@
 ## Hack Education Weekly Newsletter
 
+http://money.cnn.com/2015/01/29/technology/chris-messina-non-monogamy/index.html
+
+http://www.slate.com/articles/technology/technology/2014/10/google_self_driving_car_it_may_never_actually_happen.html
+
+http://www.newrepublic.com/article/120884/new-republics-legacy-race
+
+http://www.washingtonpost.com/news/the-intersect/wp/2015/01/29/gamergate-wikipedia-and-the-limits-of-human-knowledge/
+
+http://fivethirtyeight.com/features/the-queen-of-code/
+
+http://studentactivism.net/2015/01/29/stop-whining-freddie-deboer/
+
 http://newleftreview.org/II/91/evgeny-morozov-socialize-the-data-centres
 
 http://dish.andrewsullivan.com/2015/01/28/a-note-to-my-readers/
