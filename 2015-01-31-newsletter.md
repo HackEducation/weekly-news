@@ -1,4 +1,5 @@
 ## Hack Education Weekly Newsletter
+**Link**: http://tinyletter.com/audreywatters/letters/hack-education-weekly-newsletter-no-96
 
 http://chronicle.com/article/The-Day-the-Purpose-of-College/151359/
 
