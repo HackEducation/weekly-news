@@ -1,5 +1,23 @@
 ## Hack Education Weekly Newsletter
 
+http://cogdogblog.com/2015/02/04/the-moocing-machine/
+
+http://moreorlessbunk.net/technology/moocs/the-mushy-mooc-middle/
+
+http://www.yasminnair.net/content/harper-lee-announces-second-book-and-conspiracy-theories-break-loose
+
+https://medium.com/the-archipelago/1500-gay-christians-walk-into-a-convention-center-d59d07de9d7e
+
+http://thenewinquiry.com/blogs/zunguzungu/you-are-totally-unreliable-twitter/
+
+http://www.nytimes.com/2015/02/08/books/review/the-test-by-anya-kamenetz.html
+
+http://gizmodo.com/42-visions-for-tomorrow-from-the-golden-age-of-futurism-1683553063
+
+http://motherboard.vice.com/read/ursula-le-guin-future-of-the-left
+
+http://www.buzzfeed.com/natashaumer/disney-in-science
+
 https://medium.com/backchannel/meet-the-ultimate-wikignome-10508842caad
 
 http://www.vulture.com/2015/02/harper-lee-go-set-a-watchman-editor.html 
