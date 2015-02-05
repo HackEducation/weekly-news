@@ -1,5 +1,7 @@
 ## Hack Education Weekly Newsletter
 
+http://boingboing.net/2015/02/04/alan-turings-lost-notes-disc.html
+
 http://cogdogblog.com/2015/02/04/the-moocing-machine/
 
 http://moreorlessbunk.net/technology/moocs/the-mushy-mooc-middle/
