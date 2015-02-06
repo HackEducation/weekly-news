@@ -1,5 +1,15 @@
 ## Hack Education Weekly Newsletter
 
+http://lareviewofbooks.org/essay/uthor
+
+https://gigaom.com/2015/02/05/katy-perrys-lawyers-demand-takedown-of-3d-printable-left-shark/
+
+https://twitter.com/TheOnion/status/563467156520587264/photo/1
+
+http://www.theawl.com/2015/02/the-next-internet-is-tv
+
+http://thenewinquiry.com/av/oculus-oedipus/
+
 http://boingboing.net/2015/02/04/alan-turings-lost-notes-disc.html
 
 http://cogdogblog.com/2015/02/04/the-moocing-machine/
