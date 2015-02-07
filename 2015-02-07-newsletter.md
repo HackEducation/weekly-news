@@ -1,4 +1,5 @@
 ## Hack Education Weekly Newsletter
+**Link**: http://tinyletter.com/audreywatters/letters/hack-education-weekly-newsletter-no-97
 
 http://lareviewofbooks.org/essay/uthor
 
