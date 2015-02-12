@@ -1,5 +1,19 @@
 ## Hack Education Weekly Newsletter, No. 98
 
+http://thefrailestthing.com/2015/02/06/algorithms-who-art-in-apps-hallowed-be-thy-code/
+
+http://dmlcentral.net/blog/nicole-mirra/maker-movement-equitable
+
+http://halfanhour.blogspot.com.au/2015/02/becoming-mooc.html
+
+http://thefrailestthing.com/2015/02/08/lethal-autonomous-weapons-and-thoughtlessness/
+
+http://alex-reid.net/2015/02/improving-digital-literacy-the-horizon-reports-solvable-challenge.html
+
+https://www.edsurge.com/n/2015-02-11-20-edtech-pick-up-lines-for-your-valentine-s-day-pleasure
+
+http://www.elearning-africa.com/eLA_Newsportal/facebook-internet-access/
+
 http://www.politico.com/story/2015/02/pearson-education-115026.html
 
 http://www.schmutzie.com/weblog/we-are-not-islands-negative-thinking-as-a-viral-contagion
