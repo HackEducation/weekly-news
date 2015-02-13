@@ -1,5 +1,11 @@
 ## Hack Education Weekly Newsletter, No. 98
 
+http://www.nytimes.com/2015/02/15/magazine/how-one-stupid-tweet-ruined-justine-saccos-life.html
+
+http://dismagazine.com/issues/72970/kate-losse-cults-at-scale/
+
+https://twitter.com/NYTArchives/status/566084466175918080/photo/1
+
 http://hapgood.us/2015/02/12/a-portfolio-of-connections/
 
 http://thefrailestthing.com/2015/02/06/algorithms-who-art-in-apps-hallowed-be-thy-code/
