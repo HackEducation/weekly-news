@@ -1,5 +1,7 @@
 ## Hack Education Weekly Newsletter, No. 98
 
+http://hapgood.us/2015/02/12/a-portfolio-of-connections/
+
 http://thefrailestthing.com/2015/02/06/algorithms-who-art-in-apps-hallowed-be-thy-code/
 
 http://dmlcentral.net/blog/nicole-mirra/maker-movement-equitable
