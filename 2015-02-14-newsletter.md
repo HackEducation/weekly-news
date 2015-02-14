@@ -2,6 +2,8 @@
 
 http://www.nytimes.com/2015/02/15/magazine/how-one-stupid-tweet-ruined-justine-saccos-life.html
 
+http://www.nytimes.com/2015/02/07/opinion/gov-scott-walkers-drafting-error.html
+
 http://dismagazine.com/issues/72970/kate-losse-cults-at-scale/
 
 https://twitter.com/NYTArchives/status/566084466175918080/photo/1
