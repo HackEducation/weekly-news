@@ -1,5 +1,7 @@
 ## Hack Education Weekly Newsletter, No. 99
 
+http://thenewinquiry.com/blogs/zunguzungu/on-landings-soft-and-otherwise-and-aggressive-lacks-of-proportion/
+
 http://www.politico.com/magazine/story/2015/02/obama-uber-115166.html
 
 http://mfeldstein.com/wanted-theory-change/
