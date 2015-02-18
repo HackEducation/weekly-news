@@ -1,5 +1,15 @@
 ## Hack Education Weekly Newsletter, No. 99
 
+http://fusion.net/story/49980/why-counting-americas-homeless-is-both-imperative-and-imperfect/
+
+https://musicfordeckchairs.wordpress.com/2015/02/18/vigil/
+
+http://nymag.com/scienceofus/2015/02/were-testing-children-on-the-wrong-things.html?mid=twitter_scienceofus
+
+http://moreorlessbunk.net/academia/academic-labor/what-do-salman-khan-and-scott-walker-have-in-common/
+
+http://www.knuffke.com/blog/2015/2/17/just-teach-your-subject
+
 https://quantumprogress.wordpress.com/2015/02/17/guest-post-teaching-social-justice-in-the-physics-classroom-part-4/ (whole series)
 
 http://www.psmag.com/nature-and-technology/say-goodbye-to-the-photos-from-that-wild-trip-to-cancun
