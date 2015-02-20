@@ -1,5 +1,17 @@
 ## Hack Education Weekly Newsletter, No. 99
 
+http://www.uncomputing.org/?p=1622
+
+http://chronicle.com/article/article-content/190173/
+
+http://mathbabe.org/2015/02/20/guest-post-be-more-careful-with-the-vagina-stats-in-teaching/
+
+http://dmlcentral.net/blog/jade-e-davis/computer-ate-my-homework
+
+http://www.hopesandfears.com/hopes/culture/video-games/168413-gamergate-svu-episode-reviewed-by-leigh-alexander
+
+http://www.eater.com/2015/2/18/8056759/life-in-chains-essay-teenage-immortality-perkins
+
 http://fusion.net/story/49980/why-counting-americas-homeless-is-both-imperative-and-imperfect/
 
 https://musicfordeckchairs.wordpress.com/2015/02/18/vigil/
