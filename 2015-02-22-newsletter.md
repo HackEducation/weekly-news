@@ -1,5 +1,17 @@
 ## Hack Education Weekly Newsletter, No. 99
 
+https://www.edsurge.com/n/2015-02-19-montessori-for-all-personalized-learning-for-the-people
+
+http://www.thebaffler.com/blog/gentrifying-web/
+
+http://www.theatlantic.com/education/archive/2015/02/the-case-against-minecraft/385678/
+
+https://www.flickr.com/photos/gforsythe/16565224166/
+
+https://www.insidehighered.com/views/2015/02/20/essay-teaching-global-one-percent
+
+http://www.washingtonpost.com/news/the-intersect/wp/2014/06/18/we-tried-out-the-facial-recognition-software-that-match-com-will-use-to-find-people-who-look-like-your-exes/
+
 http://www.uncomputing.org/?p=1622
 
 http://chronicle.com/article/article-content/190173/
