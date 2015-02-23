@@ -1,5 +1,17 @@
 ## Hack Education Weekly Newsletter, No. 100
 
+http://www.theatlantic.com/education/archive/2015/02/the-guardian-angels-of-student-debt/385756/
+
+http://bionicteaching.com/semi-programistan-and-other-conundrums/
+
+http://chronicle.com/article/article-content/190247/
+
+http://krugman.blogs.nytimes.com/2015/02/22/rip-van-skillsgap/?_r=2
+
+http://www.nextnature.net/2015/02/interview-bruce-sterling-on-the-convergence-of-humans-and-machines/
+
+https://www.edsurge.com/n/2015-02-22-why-the-future-of-pre-k-is-at-home
+
 http://www.roughtype.com/?p=5594
 
 https://www.edsurge.com/n/2015-02-22-why-the-future-of-pre-k-is-at-home
