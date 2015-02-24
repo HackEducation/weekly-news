@@ -1,5 +1,29 @@
 ## Hack Education Weekly Newsletter, No. 100
 
+http://chronicle.com/article/The-Believers/190147/
+
+http://blogs.worldbank.org/edutech/tech-and-teachers
+
+http://www.wired.com/2015/02/kids-school-missing-tech-revolution-fault/
+
+https://medium.com/message/just-checking-in-d2b5540f0064
+
+http://www.buzzfeed.com/aramroston/fostering-profits#.glVK6bDWK
+
+http://boingboing.net/2015/02/23/children-perform-zeppelin.html
+
+http://priceonomics.com/the-time-everyone-corrected-the-worlds-smartest/
+
+http://www.slate.com/articles/double_x/doublex/2011/03/why_preschool_shouldnt_be_like_school.html?wpsrc=sh_all_dt_tw_top
+
+http://motherboard.vice.com/read/looking-up-symptoms-online-these-companies-are-collecting-your-data
+
+http://www.theatlantic.com/education/archive/2015/02/the-downfall-of-for-profit-colleges/385810/
+
+http://www.wired.com/2015/02/silicon-valley-thinks-can-learn-skater-culture-terrible-idea/
+
+http://www.theguardian.com/education/2015/feb/23/student-debt-for-profit-colleges
+
 http://www.theatlantic.com/education/archive/2015/02/the-guardian-angels-of-student-debt/385756/
 
 http://bionicteaching.com/semi-programistan-and-other-conundrums/
