@@ -1,5 +1,15 @@
 ## Hack Education Weekly Newsletter, No. 100
 
+http://universityventures.com/publications.php?title=that-voodoo-that-moocs-do
+
+http://boingboing.net/2015/02/25/the-dystopian-future-of-quanti.html
+
+http://xkcd.com/1491/
+
+http://blogs.swarthmore.edu/burke/blog/2015/02/24/wary-about-wisdom/
+
+http://dismagazine.com/issues/73298/sara-m-watson-metaphors-of-big-data/
+
 http://chronicle.com/article/The-Believers/190147/
 
 http://blogs.worldbank.org/edutech/tech-and-teachers
