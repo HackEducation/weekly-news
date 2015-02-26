@@ -1,5 +1,13 @@
 ## Hack Education Weekly Newsletter, No. 100
 
+https://medium.com/backchannel/why-i-m-saying-goodbye-to-apple-google-and-microsoft-78af12071bd
+
+http://www.theverge.com/2015/2/25/8107719/vivek-wadhwa-women-in-tech-diversity
+
+https://modelviewculture.com/pieces/institutional-barriers-for-women-of-color-at-code-schools
+
+http://robertogreco.tumblr.com/post/112063444653/jay-smooth-on-the-oscars-and-learning-the-craft
+
 http://universityventures.com/publications.php?title=that-voodoo-that-moocs-do
 
 http://boingboing.net/2015/02/25/the-dystopian-future-of-quanti.html
