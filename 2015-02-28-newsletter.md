@@ -1,5 +1,23 @@
 ## Hack Education Weekly Newsletter, No. 100
 
+http://boingboing.net/2015/02/27/the-sad-reality-of-pimp-my-r.html
+
+http://mathbabe.org/2015/02/27/for-profit-colleges-are-the-real-villain/
+
+http://nymag.com/thecut/2015/02/magical-8-year-old-is-worshipped-by-wild-crows.html?mid=twitter_nymag
+
+http://www.veletsianos.com/2015/02/26/universities-have-always-been-changing/
+
+http://www.psmag.com/politics-and-law/some-lawmakers-want-to-remove-university-justice-centers
+
+http://www.theatlantic.com/education/archive/2015/02/how-education-shaped-communist-cuba/386192/
+
+http://www.hybridpedagogy.com/columns/inner-voice-criticality-empathy/
+
+http://www.vox.com/2015/2/26/8114351/boyhood-college
+
+http://www.markdrechsler.com/?p=1160
+
 https://medium.com/backchannel/why-i-m-saying-goodbye-to-apple-google-and-microsoft-78af12071bd
 
 http://www.theverge.com/2015/2/25/8107719/vivek-wadhwa-women-in-tech-diversity
