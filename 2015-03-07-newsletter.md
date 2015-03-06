@@ -1,5 +1,11 @@
 ## Hack Education Weekly Newsletter, No. 101
 
+http://www.roughtype.com/?p=5664
+
+http://pi.co/jenna-wortham-new-york-times-writer/
+
+http://www.technologyreview.com/featuredstory/535661/engineering-the-perfect-baby/
+
 http://www.hastac.org/blogs/katina-rogers/2015/03/05/relying-contingent-labor-affects-research-too
 
 http://mfeldstein.com/blueprint-for-a-post-lms-part-2/
