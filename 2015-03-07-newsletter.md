@@ -1,5 +1,7 @@
 ## Hack Education Weekly Newsletter, No. 101
 
+http://www.theatlantic.com/politics/archive/2015/03/sledding-as-a-revolutionary-act/387028/
+
 http://www.roughtype.com/?p=5664
 
 http://pi.co/jenna-wortham-new-york-times-writer/
