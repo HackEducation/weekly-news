@@ -1,5 +1,13 @@
 ## Hack Education Weekly Newsletter, No. 101
 
+http://www.inc.com/magazine/201504/david-whitford/gamergate-why-would-anyone-want-to-kill-brianna-wu.html?cid=sf01001
+
+http://hellogiggles.com/school-stops-giving-homework
+
+http://mfeldstein.com/blueprint-for-a-post-lms-part-3/
+
+http://www.theatlantic.com/education/archive/2015/03/the-death-of-textbooks/387055/
+
 http://www.theatlantic.com/politics/archive/2015/03/The-Gangsters-Of-Ferguson/386893/
 
 http://www.theatlantic.com/politics/archive/2015/03/sledding-as-a-revolutionary-act/387028/
