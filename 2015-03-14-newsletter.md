@@ -1,5 +1,15 @@
 ## Hack Education Weekly Newsletter, No. 102
 
+http://www.digitalcounterrevolution.co.uk/2015/edtech-and-the-the-individual/
+
+http://theory.cribchronicles.com/Open%20to%20Influence%20Pre-print.pdf
+
+http://www.washingtonpost.com/posteverything/wp/2015/03/04/im-a-12-year-old-girl-why-dont-the-characters-in-my-apps-look-like-me/?postshare=6231425504096857
+
+https://medium.com/@dannysullivan/after-gigaom-the-non-vc-simcity-approach-to-growing-a-media-business-b10297a4f2d5
+
+http://www.buzzfeed.com/stephaniemlee/why-apples-new-researchkit-could-have-a-diversity-problem#.etKqgxGmq
+
 https://medium.com/message/that-way-we-re-all-talking-now-49e255037f15
 
 https://docs.google.com/presentation/d/1nLe2F3yoZpGcE8JY27UfgB5IObVJtIgdAbiXITEcT4k/edit#slide=id.p
