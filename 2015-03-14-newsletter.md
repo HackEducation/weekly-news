@@ -4,6 +4,8 @@ http://www.digitalcounterrevolution.co.uk/2015/edtech-and-the-the-individual/
 
 http://theory.cribchronicles.com/Open%20to%20Influence%20Pre-print.pdf
 
+https://medium.com/matter/shitphone-a-love-story-a44e66434807
+
 http://www.washingtonpost.com/posteverything/wp/2015/03/04/im-a-12-year-old-girl-why-dont-the-characters-in-my-apps-look-like-me/?postshare=6231425504096857
 
 https://medium.com/@dannysullivan/after-gigaom-the-non-vc-simcity-approach-to-growing-a-media-business-b10297a4f2d5
