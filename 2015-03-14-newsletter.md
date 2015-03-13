@@ -1,5 +1,21 @@
 ## Hack Education Weekly Newsletter, No. 102
 
+http://9while9.tumblr.com/post/51151931417/there-used-to-be-all-sorts-of-criticisms-of-the
+
+http://nymag.com/thecut/2015/03/i-am-not-my-internet-personality.html
+
+http://www.newrepublic.com/article/121258/kevin-careys-end-college-review-hacking-broken-higher-ed
+
+http://www.rollingstone.com/politics/news/high-school-students-across-the-country-are-fighting-for-their-rights-20150311
+
+http://paleofuture.gizmodo.com/take-the-intelligence-test-that-thomas-edison-gave-to-j-1689489019
+
+http://www.theatlantic.com/education/archive/2015/03/why-science-fairs-arent-so-fair/387547/
+
+http://www.richard-hall.org/2015/03/12/for-a-political-economy-of-massive-open-online-courses-2/
+
+http://speakingopenly.co.uk/
+
 http://www.digitalcounterrevolution.co.uk/2015/edtech-and-the-the-individual/
 
 http://theory.cribchronicles.com/Open%20to%20Influence%20Pre-print.pdf
