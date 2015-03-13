@@ -1,5 +1,7 @@
 ## Hack Education Weekly Newsletter, No. 102
 
+http://www.theatlantic.com/education/archive/2015/03/beyond-the-end-of-college/387472/
+
 http://9while9.tumblr.com/post/51151931417/there-used-to-be-all-sorts-of-criticisms-of-the
 
 http://nymag.com/thecut/2015/03/i-am-not-my-internet-personality.html
