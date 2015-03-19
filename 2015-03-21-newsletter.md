@@ -1,5 +1,9 @@
 ## Hack Education Weekly Newsletter, No. 103
 
+http://boingboing.net/2015/03/19/google-glass-chief-amazed.html
+
+http://mfeldstein.com/back-to-the-future-looking-at-lms-forecasts-from-2011-2014/
+
 http://suburbdad.blogspot.com/2015/03/scaling-student-support.html
 
 http://www.wired.com/2015/03/yik-yak-online-anonymity-good-college-students/
