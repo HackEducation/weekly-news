@@ -1,5 +1,7 @@
 ## Hack Education Weekly Newsletter, No. 103
 
+http://www.psmag.com/books-and-culture/what-if-education-reform-got-it-all-wrong-in-the-first-place
+
 http://www.iasc-culture.org/THR/THR_article_2015_Spring_Vaidhyanathan.php
 
 http://www.newyorker.com/news/john-cassidy/the-biggest-threat-to-americas-future-is-america
