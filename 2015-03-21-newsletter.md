@@ -1,5 +1,13 @@
 ## Hack Education Weekly Newsletter, No. 103
 
+http://www.iasc-culture.org/THR/THR_article_2015_Spring_Vaidhyanathan.php
+
+http://www.newyorker.com/news/john-cassidy/the-biggest-threat-to-americas-future-is-america
+
+http://www.dailydot.com/lol/microsoft-clippy-erotica-amazon-kindle-ebook/?tw=dd
+
+http://practicaltypography.com/billionaires-typewriter.html
+
 http://boingboing.net/2015/03/19/google-glass-chief-amazed.html
 
 http://mfeldstein.com/back-to-the-future-looking-at-lms-forecasts-from-2011-2014/
