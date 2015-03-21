@@ -1,5 +1,11 @@
 ## Hack Education Weekly Newsletter, No. 103
 
+http://www.washingtonpost.com/opinions/how-one-mans-utopian-vision-for-the-internet-conquered-and-then-badly-warped-silicon-valley/2015/03/20/7dbe39f8-cdab-11e4-a2a7-9517a3a70506_story.html
+
+http://www.newyorker.com/news/news-desk/new-politics-at-the-university-of-north-carolina
+
+http://www.politico.com/story/2015/03/cyber-snoops-track-students-116276.html
+
 http://www.psmag.com/books-and-culture/what-if-education-reform-got-it-all-wrong-in-the-first-place
 
 http://www.iasc-culture.org/THR/THR_article_2015_Spring_Vaidhyanathan.php
