@@ -12,4 +12,6 @@ http://fusion.net/story/108086/yik-yak-liberty-university-and-the-end-of-cultura
 
 http://www.thebaffler.com/salvos/taming-tech-criticism
 
+https://ind.ie/the-camera-panopticon/
+
 
