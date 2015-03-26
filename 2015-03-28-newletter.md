@@ -1,5 +1,7 @@
 ## Hack Education Weekly Newsletter, No. 104
 
+https://www.insidehighered.com/views/2015/03/26/essay-challenging-kevin-careys-new-book-higher-education
+
 https://www.jacobinmag.com/2015/03/education-technology-gates-erickson/
 
 http://thejosevilson.com/this-is-not-a-test-new-york-edition-thanks-nycore/
