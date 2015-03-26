@@ -1,5 +1,9 @@
 ## Hack Education Weekly Newsletter, No. 104
 
+http://www.wired.com/2015/03/free-not-future-digital-content-education/
+
+http://www.wsj.com/articles/charles-murray-why-the-sat-isnt-a-student-affluence-test-1427238664
+
 https://www.insidehighered.com/views/2015/03/26/essay-challenging-kevin-careys-new-book-higher-education
 
 https://www.jacobinmag.com/2015/03/education-technology-gates-erickson/
