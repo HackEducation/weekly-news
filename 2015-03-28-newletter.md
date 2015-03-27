@@ -1,5 +1,19 @@
 ## Hack Education Weekly Newsletter, No. 104
 
+http://www.newyorker.com/books/page-turner/o-adjunct-my-adjunct
+
+https://www.insidehighered.com/blogs/technology-and-learning/criticism-vs-attack
+
+http://www.roughtype.com/?p=5764
+
+http://hapgood.us/2015/03/26/paper-thoughts-and-the-remix-hypothesis/
+
+http://opencontent.org/blog/archives/3813
+
+http://coreyrobin.com/2015/03/26/why-is-so-much-of-our-discussion-of-higher-ed-driven-by-elite-institutions/
+
+https://medium.com/matter/the-shut-in-economy-ec3ec1294816
+
 http://www.wired.com/2015/03/free-not-future-digital-content-education/
 
 http://www.wsj.com/articles/charles-murray-why-the-sat-isnt-a-student-affluence-test-1427238664
