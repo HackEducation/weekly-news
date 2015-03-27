@@ -24,6 +24,8 @@ https://www.jacobinmag.com/2015/03/education-technology-gates-erickson/
 
 http://thejosevilson.com/this-is-not-a-test-new-york-edition-thanks-nycore/
 
+http://www.aei.org/publication/debt-fueled-bubbles-bubbles-bubbles-first-home-prices-now-higher-education-and-taxi-medallions/
+
 http://www.washingtonpost.com/news/the-intersect/wp/2015/03/23/what-you-dont-know-about-internet-algorithms-is-hurting-you-and-you-probably-dont-know-very-much/
 
 http://moreorlessbunk.net/technology/the-rhythm-of-the-classroom/
