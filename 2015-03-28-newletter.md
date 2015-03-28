@@ -1,5 +1,9 @@
 ## Hack Education Weekly Newsletter, No. 104
 
+http://ideas.ted.com/want-to-help-prevent-online-bullying-comment-on-facebook/
+
+http://audrey.techgypsi.es/2015/a-comment-not-left-on-inside-higher-ed
+
 http://www.newyorker.com/books/page-turner/o-adjunct-my-adjunct
 
 https://www.insidehighered.com/blogs/technology-and-learning/criticism-vs-attack
