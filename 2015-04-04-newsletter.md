@@ -1,5 +1,11 @@
 ## Hack Education Weekly Newsletter, No. 105
 
+http://thesocietypages.org/cyborgology/2015/03/24/insidious-algorithms-jobalines-voice-analyzer/
+
+http://nymag.com/daily/intelligencer/2015/03/ellen-pao-and-the-sexism-you-cant-quite-prove.html
+
+http://www.philly.com/philly/opinion/20150329_When_Web_monitoring_isn_t_about_privacy.html
+
 http://tinyletter.com/metafoundry/letters/metafoundry-30-confusion-matrices
 
 https://www.insidehighered.com/blogs/just-visiting/internet-things-coming-your-children
