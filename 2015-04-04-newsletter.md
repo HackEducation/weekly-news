@@ -1,5 +1,21 @@
 ## Hack Education Weekly Newsletter, No. 105
 
+http://www.economist.com/news/special-report/21646991-both-provision-and-funding-higher-education-shifting-towards-private-sector-mix
+
+http://www.nytimes.com/2015/04/01/upshot/why-more-education-wont-fix-economic-inequality.html
+
+https://www.insidehighered.com/blogs/technology-and-learning/communication-privilege-and-community
+
+http://www.nytimes.com/2015/04/01/us/gary-dahl-inventor-of-the-pet-rock-dies-at-78.html
+
+https://medium.com/message/my-failed-experiment-in-time-travel-3aa2240a6bc0
+
+https://modelviewculture.com/news/gamergates-next-target-is-the-tech-industry-are-we-ready
+
+http://hapgood.us/2015/03/31/critique-by-redesign-and-revision/
+
+http://thenewinquiry.com/features/birth-of-the-commune/
+
 http://thesocietypages.org/cyborgology/2015/03/24/insidious-algorithms-jobalines-voice-analyzer/
 
 http://nymag.com/daily/intelligencer/2015/03/ellen-pao-and-the-sexism-you-cant-quite-prove.html
