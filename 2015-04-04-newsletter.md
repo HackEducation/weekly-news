@@ -1,5 +1,13 @@
 ## Hack Education Weekly Newsletter, No. 105
 
+http://dmlcentral.net/blog/doug-belshaw/peering-deep-future-educational-credentialing
+
+https://medium.com/matter/admit-it-your-fave-is-problematic-2dfa692f557b
+
+http://hapgood.us/2015/04/01/picketty-remix-and-the-most-important-student-blog-comment-of-the-21st-century/
+
+https://teachrunwrite.wordpress.com/2015/03/31/the-paradox-of-high-expectations/
+
 http://www.economist.com/news/special-report/21646991-both-provision-and-funding-higher-education-shifting-towards-private-sector-mix
 
 http://www.nytimes.com/2015/04/01/upshot/why-more-education-wont-fix-economic-inequality.html
