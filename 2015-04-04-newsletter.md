@@ -1,5 +1,19 @@
 ## Hack Education Weekly Newsletter, No. 105
 
+http://penguinrandomhouse.ca/hazlitt/blog/must-we-forfeit-our-ghee
+
+http://dmlcentral.net/blog/ben-williamson/future-and-history-learning-code
+
+https://medium.com/matter/against-chill-930dfb60a577
+
+http://www.roughtype.com/?p=5874
+
+https://www.jacobinmag.com/2015/03/anthropocene-capitalism-climate-change/
+
+http://bavatuesdays.com/umws-console-living-room-there-is-something-that-loves-a-paneled-wall/
+
+http://www.theverge.com/2015/4/2/8285139/max-headroom-oral-history-80s-cyberpunk-interview
+
 http://dmlcentral.net/blog/doug-belshaw/peering-deep-future-educational-credentialing
 
 https://medium.com/matter/admit-it-your-fave-is-problematic-2dfa692f557b
