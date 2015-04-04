@@ -1,5 +1,13 @@
 ## Hack Education Weekly Newsletter, No. 105
 
+http://opencontent.org/blog/archives/3845
+
+https://stronglang.wordpress.com/2015/04/03/google-ngrams-vs-long-s/
+
+http://www.bbc.com/future/story/20150402-the-worst-place-on-earth
+
+https://chroniclevitae.com/news/957-depression-anxiety-and-contingency
+
 http://penguinrandomhouse.ca/hazlitt/blog/must-we-forfeit-our-ghee
 
 http://dmlcentral.net/blog/ben-williamson/future-and-history-learning-code
