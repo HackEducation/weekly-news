@@ -1,5 +1,11 @@
 ## Hack Education Weekly Newsletter, No. 106
 
+http://text-patterns.thenewatlantis.com/2015/04/what-buttons-want.html
+
+http://thenewinquiry.com/essays/community-slander/
+
+https://www.jacobinmag.com/2015/04/braverman-gramsci-marx-technology/
+
 https://www.insidehighered.com/blogs/higher-ed-beta/contributions-and-connections
 
 http://gawker.com/the-food-babe-blogger-is-full-of-shit-1694902226
