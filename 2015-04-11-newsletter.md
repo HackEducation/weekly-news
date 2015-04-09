@@ -1,5 +1,11 @@
 ## Hack Education Weekly Newsletter, No. 106
 
+http://chronicle.com/article/The-Slow-Death-of-the/228991/
+
+http://firstmonday.org/ojs/index.php/fm/article/view/5896/4417
+
+https://medium.com/@joeatmars/another-myth-from-silicon-valley-reinventing-education-75aea7de61f8 - http://www.washingtonpost.com/blogs/innovations/wp/2015/04/08/heres-how-we-can-reinvent-the-classroom-for-the-digital-age/
+  
 http://text-patterns.thenewatlantis.com/2015/04/what-buttons-want.html
 
 http://thenewinquiry.com/essays/community-slander/
