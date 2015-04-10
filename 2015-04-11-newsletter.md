@@ -1,5 +1,9 @@
 ## Hack Education Weekly Newsletter, No. 106
 
+http://www.vqronline.org/memoir-articles/2015/04/dosa
+
+http://chronicle.com/article/In-Defense-of-Specialization/229023/
+
 http://chronicle.com/article/The-Slow-Death-of-the/228991/
 
 http://firstmonday.org/ojs/index.php/fm/article/view/5896/4417
