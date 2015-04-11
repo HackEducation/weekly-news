@@ -1,5 +1,13 @@
 ## Hack Education Weekly Newsletter, No. 106
 
+http://www.psmag.com/books-and-culture/in-short-white-people-need-to-be-less-stupid
+
+https://medium.com/@chrismessina/the-full-stack-employee-ed0db089f0a1
+
+https://www.radicalphilosophy.com/commentary/devolving-public-universities
+
+https://medium.com/matter/black-men-being-killed-is-the-new-girls-gone-wild-da5c150b70c4
+
 http://www.vqronline.org/memoir-articles/2015/04/dosa
 
 http://chronicle.com/article/In-Defense-of-Specialization/229023/
