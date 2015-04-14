@@ -3,3 +3,15 @@
 http://www.roughtype.com/?p=5925
 
 http://xkcd.com/1511/
+
+https://youtu.be/XfcC6FYyL4U
+
+http://blog.edtechie.net/oer/finding-the-problems-oer-solves/
+
+http://alex-reid.net/2015/04/against-close-reading.html
+
+http://tableflip.club/
+
+https://medium.com/the-slice/is-nicki-minaj-hip-hop-s-dolly-parton-73e0bc439c41
+
+http://www.theawl.com/2015/04/how-to-optimize-your-flesh-prison
