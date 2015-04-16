@@ -1,5 +1,11 @@
 ## Hack Education Weekly Newsletter, No. 107
 
+http://thejosevilson.com/the-short-hand-on-the-clock-on-common-core-state-testing/
+
+http://thejosevilson.com/the-short-hand-on-the-clock-on-common-core-state-testing/
+
+http://boingboing.net/2015/04/15/90s-computer-teacher-schools.html
+
 http://motherboard.vice.com/read/lets-play-a-game-about-your-body-s-data
 
 http://www.buzzfeed.com/jacquishine/its-a-shame
