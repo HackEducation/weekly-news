@@ -1,5 +1,11 @@
 ## Hack Education Weekly Newsletter, No. 107
 
+http://opencontent.org/blog/archives/3854
+
+http://www.theawl.com/2015/04/the-toys-you-wont-buy
+
+https://medium.com/message/how-to-lie-with-wikipedia-129b92e55ac
+
 http://thejosevilson.com/the-short-hand-on-the-clock-on-common-core-state-testing/
 
 http://thejosevilson.com/the-short-hand-on-the-clock-on-common-core-state-testing/
