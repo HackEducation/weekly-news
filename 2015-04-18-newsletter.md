@@ -1,5 +1,21 @@
 ## Hack Education Weekly Newsletter, No. 107
 
+https://prospect.org/article/can-grit-save-american-education
+
+https://synapse.pub/autodidactism-the-power-of-self-learning-3afabdfba13d
+
+http://stager.tv/blog/?p=3476
+
+http://edutechnicalities.com/articles/selling-openness-branded-digital-content-in-the-world-of-open/
+
+http://www.newyorker.com/tech/elements/cedric-villani-france-famous-mathematician-birth-theorem
+
+https://modelviewculture.com/news/the-full-stack-employee-and-the-glorification-of-generalization
+
+http://www.richard-hall.org/2015/04/16/on-learning-gain-academic-subsumption-and-performance-anxiety/
+
+http://dmlcentral.net/blog/jade-e-davis/flaws-online-course-testing
+
 http://opencontent.org/blog/archives/3854
 
 http://www.theawl.com/2015/04/the-toys-you-wont-buy
