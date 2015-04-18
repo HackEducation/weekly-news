@@ -1,5 +1,9 @@
 ## Hack Education Weekly Newsletter, No. 107
 
+http://www.vice.com/read/this-tech-startup-is-helping-the-cops-track-sex-workers-online-417
+
+http://www.theawl.com/2015/04/teach-and-frisk
+
 https://prospect.org/article/can-grit-save-american-education
 
 https://synapse.pub/autodidactism-the-power-of-self-learning-3afabdfba13d
