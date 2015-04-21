@@ -1,5 +1,9 @@
 ## Hack Education Weekly Newsletter, No. 108
 
+http://dmlcentral.net/blog/mimi-ito/connected-civics-and-learning
+
+http://www.theawl.com/2015/04/the-robots-wont-care-about-self-worth-through-work
+
 http://www.wired.com/2015/04/antitrust-debacle-googles-real-victim/
 
 http://www.samplereality.com/2015/04/19/warning-infected-inside-do-not-enter/
