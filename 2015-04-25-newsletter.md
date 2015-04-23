@@ -1,5 +1,9 @@
 ## Hack Education Weekly Newsletter, No. 108
 
+http://www.wired.com/2015/04/dmca-ownership-john-deere/
+
+http://laughingsquid.com/why-number-2-pencils-are-used-on-exams/
+
 http://dmlcentral.net/blog/mimi-ito/connected-civics-and-learning
 
 http://www.theawl.com/2015/04/the-robots-wont-care-about-self-worth-through-work
