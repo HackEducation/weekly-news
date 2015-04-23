@@ -2,6 +2,8 @@
 
 http://www.wired.com/2015/04/dmca-ownership-john-deere/
 
+http://hapgood.us/2015/04/21/that-time-berners-lee-got-knocked-down-to-a-poster-session/
+
 http://laurascoloringbook.blogspot.de/2015/04/a-response-to-baynes-striated-and.html
 
 http://laughingsquid.com/why-number-2-pencils-are-used-on-exams/
