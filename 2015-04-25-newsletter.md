@@ -1,5 +1,7 @@
 ## Hack Education Weekly Newsletter, No. 108
 
+http://www.theverge.com/2015/4/22/8381963/rube-goldberg-machine-contest-history-ideas
+
 http://www.wired.com/2015/04/dmca-ownership-john-deere/
 
 http://hapgood.us/2015/04/21/that-time-berners-lee-got-knocked-down-to-a-poster-session/
