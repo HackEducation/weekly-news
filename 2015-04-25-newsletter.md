@@ -1,5 +1,7 @@
 ## Hack Education Weekly Newsletter, No. 108
 
+https://allmoocs.wordpress.com/2015/04/24/same-as-it-ever-was-the-global-freshman-academy/
+
 http://www.theverge.com/2015/4/22/8381963/rube-goldberg-machine-contest-history-ideas
 
 http://www.wired.com/2015/04/dmca-ownership-john-deere/
