@@ -2,6 +2,8 @@
 
 https://musicfordeckchairs.wordpress.com/2015/04/26/writing-and-dying/
 
+http://www.theatlantic.com/politics/archive/2015/04/nonviolence-as-compliance/391640/?fb_ref=Default
+
 http://theamericanreader.com/a-question-of-silence-why-we-dont-read-or-write-about-education/
 
 http://shermandorn.com/wordpress/?p=7877
