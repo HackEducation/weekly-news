@@ -1,5 +1,13 @@
 ## Hack Education Weekly Newsletter, No. 109
 
+http://daringfireball.net/2015/04/watch_apple_watch
+
+http://followersoftheapocalyp.se/on-higher-education-reseach/
+
+https://twitter.com/FionaIngleby/status/593407845321814016
+
+http://alex-reid.net/2015/04/this-will-revolutionize-education.html
+
 https://musicfordeckchairs.wordpress.com/2015/04/26/writing-and-dying/
 
 http://www.theatlantic.com/politics/archive/2015/04/nonviolence-as-compliance/391640/?fb_ref=Default
