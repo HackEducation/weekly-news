@@ -1,5 +1,11 @@
 ## Hack Education Weekly Newsletter, No. 109
 
+http://www.bostonmagazine.com/news/article/2015/04/28/gamergate/
+
+https://allmoocs.wordpress.com/2015/05/01/what-we-talk-about-when-we-talk-about-moocs/
+
+http://boingboing.net/2015/05/01/student-hand-drawings-of-their.html
+
 http://daringfireball.net/2015/04/watch_apple_watch
 
 http://followersoftheapocalyp.se/on-higher-education-reseach/
