@@ -1,5 +1,19 @@
 ## Hack Education Weekly Newsletter, No. 110
 
+http://www.mcsweeneys.net/articles/a-message-from-george-orwell-silicon-valley-youth-soccer-club-asst-director-of-operations-and-coach-girls-u12
+
+http://hapgood.us/2015/05/05/the-oer-case-for-federated-wiki/
+
+http://www.nytimes.com/2015/05/05/science/thomas-edison-talking-dolls-recordings.html
+
+http://suburbdad.blogspot.com/2015/05/holds.html
+
+http://www.nytimes.com/2015/05/10/magazine/our-demand-is-simple-stop-killing-us.html
+
+http://text-patterns.thenewatlantis.com/2015/05/insders-and-outsiders.html
+
+https://youtu.be/J6lyURyVz7k
+
 https://medium.com/@honeystaysuper/how-to-talk-to-your-kids-about-bernie-sanders-db1263608fff
 
 https://medium.com/backchannel/why-silicon-valley-will-continue-to-rule-c0cbb441e22f
