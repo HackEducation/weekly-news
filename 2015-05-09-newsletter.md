@@ -1,5 +1,15 @@
 ## Hack Education Weekly Newsletter, No. 110
 
+https://medium.com/bright/the-secret-lives-of-homeless-students-a4b506ded525
+
+http://www.psmag.com/business-economics/our-schools-all-have-a-tragic-flaw-silicon-valley-thinks-it-has-the-answer
+
+http://www.psmag.com/books-and-culture/the-intellectual-father-of-personalized-education
+
+https://twitter.com/brettmaxkaufman/status/596008090287349760/photo/1
+
+https://allmoocs.wordpress.com/2015/05/06/mooc-4-no/
+
 http://www.mcsweeneys.net/articles/a-message-from-george-orwell-silicon-valley-youth-soccer-club-asst-director-of-operations-and-coach-girls-u12
 
 http://hapgood.us/2015/05/05/the-oer-case-for-federated-wiki/
