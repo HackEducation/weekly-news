@@ -1,5 +1,9 @@
 ## Hack Education Weekly Newsletter, No. 110
 
+http://www.theawl.com/2015/05/the-attention-brokers
+
+https://medium.com/message/how-facebook-s-algorithm-suppresses-content-diversity-modestly-how-the-newsfeed-rules-the-clicks-b5f8a4bb7bab
+
 https://medium.com/bright/the-secret-lives-of-homeless-students-a4b506ded525
 
 http://www.psmag.com/business-economics/our-schools-all-have-a-tragic-flaw-silicon-valley-thinks-it-has-the-answer
