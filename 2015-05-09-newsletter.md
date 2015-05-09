@@ -1,5 +1,7 @@
 ## Hack Education Weekly Newsletter, No. 110
 
+http://blogs.swarthmore.edu/burke/blog/2015/05/09/apples-for-the-teacher-teacher-is-an-apple/
+
 http://www.theawl.com/2015/05/the-attention-brokers
 
 https://medium.com/message/how-facebook-s-algorithm-suppresses-content-diversity-modestly-how-the-newsfeed-rules-the-clicks-b5f8a4bb7bab
