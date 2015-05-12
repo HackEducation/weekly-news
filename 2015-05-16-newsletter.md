@@ -1,5 +1,17 @@
 ## Hack Education Weekly Newsletter, No. 111
 
+https://www.insidehighered.com/advice/2015/05/11/essay-instructor-who-has-taught-adjunct-25-years
+
+http://www.huffingtonpost.com/zeynep-tufekci/facebook-algorithm-echo-chambers_b_7259916.html
+
+http://www.technologyreview.com/qa/536701/putting-technology-in-its-place/
+
+http://www.newyorker.com/magazine/2015/05/18/tomorrows-advance-man
+
+http://penguinrandomhouse.ca/hazlitt/feature/i-stole-pen-douglas-adams-grave
+
+http://www.theatlantic.com/education/archive/2015/05/black-girls-should-matter-too/392879/
+
 http://katiahildebrandt.com/still-waiting-for-superman-white-saviors-and-systemic-racism-in-baltimore-city-schools/
 
 http://www.nytimes.com/2015/05/10/opinion/sunday/whats-the-point-of-a-professor.html
