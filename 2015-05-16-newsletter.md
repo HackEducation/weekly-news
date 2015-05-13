@@ -1,5 +1,11 @@
 ## Hack Education Weekly Newsletter, No. 111
 
+https://twitter.com/jjg/status/597861938387918848?refsrc=email&s=11
+
+http://tressiemc.com/2015/05/12/everything-but-the-burden-publics-public-scholarship-and-institutions/
+
+http://blog.edtechie.net/mooc/the-eddie-murphy-cycle/
+
 https://www.insidehighered.com/advice/2015/05/11/essay-instructor-who-has-taught-adjunct-25-years
 
 http://www.huffingtonpost.com/zeynep-tufekci/facebook-algorithm-echo-chambers_b_7259916.html
