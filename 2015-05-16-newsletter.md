@@ -1,5 +1,15 @@
 ## Hack Education Weekly Newsletter, No. 111
 
+http://ideas.aeon.co/viewpoints/2240
+
+http://www.slate.com/articles/news_and_politics/foreigners/2015/05/seymour_hersh_interview_on_his_bin_laden_story_the_new_yorker_journalism.2.html
+
+http://www.theawl.com/2015/05/what-could-go-wrong
+
+http://fusion.net/story/134163/silicon-valleys-startup-castle-is-looking-for-roommates-and-the-requirements-are-completely-bonkers/
+
+http://clintlalonde.net/2015/05/13/correcting-the-history-of-educational-radio-in-canada-on-wikipedia - http://www.broadcasting-history.ca/index3.html?url=http://www.broadcasting-history.ca/programming/History_of_Educational_Broadcasting.html
+
 https://twitter.com/jjg/status/597861938387918848?refsrc=email&s=11
 
 http://tressiemc.com/2015/05/12/everything-but-the-burden-publics-public-scholarship-and-institutions/
