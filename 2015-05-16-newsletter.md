@@ -2,6 +2,8 @@
 
 http://ideas.aeon.co/viewpoints/2240
 
+https://youtu.be/pifhszsZKg4
+
 http://www.slate.com/articles/news_and_politics/foreigners/2015/05/seymour_hersh_interview_on_his_bin_laden_story_the_new_yorker_journalism.2.html
 
 http://www.theawl.com/2015/05/what-could-go-wrong
