@@ -1,5 +1,19 @@
 ## Hack Education Weekly Newsletter, No. 111
 
+http://musicfordeckchairs.com/blog/2015/05/16/stones-only/
+
+http://www.nytimes.com/2015/05/17/opinion/sunday/let-the-kids-learn-through-play.html
+
+http://www.wired.com/2015/05/silicon-valley-letting-go-techie-island-fantasies/
+
+http://chronicle.com/article/A-Plague-of-Hypersensitivity/229963/
+
+http://www.newyorker.com/tech/elements/innovation-dial-up-on-the-bosphorus
+
+http://www.mikerosebooks.blogspot.com/2015/05/bullets-and-grit.html
+
+http://www.theatlantic.com/technology/archive/2015/05/its-not-too-late-to-get-body-cameras-right/393257/
+
 http://ideas.aeon.co/viewpoints/2240
 
 https://youtu.be/pifhszsZKg4
