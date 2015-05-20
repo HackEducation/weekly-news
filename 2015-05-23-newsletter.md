@@ -1,5 +1,25 @@
 ## Hack Education Weekly Newsletter, No. 112
 
+http://www.mcsweeneys.net/articles/ms-hendersons-second-grade-classs-math-test
+
+http://www.roughtype.com/?p=5980
+
+http://text-patterns.thenewatlantis.com/2015/05/pynchon-and-californian-ideology.html
+
+http://dailyimprovisation.blogspot.com/2015/05/educational-cybernetics-across.html
+
+http://blogs.swarthmore.edu/burke/blog/2015/05/19/the-abuses-of-fantasy/
+
+http://simonpegg.net/2015/05/19/big-mouth-strikes-again/
+
+https://medium.com/message/a-no-to-poem-6f5d7aea9f15
+
+http://www.salon.com/2015/05/19/youre_fired_if_you_think_the_first_amendment_protects_you_from_repercussions_resulting_from_social_media_postings_youre_wrong/
+
+http://www.psmag.com/nature-and-technology/my-computer-is-also-my-psychiatrist
+
+http://recode.net/2015/05/18/high-tech-hypocrisy/
+
 http://bits.blogs.nytimes.com/2015/05/19/bringing-the-personal-internet-of-things-to-the-poor/
 
 http://motherboard.vice.com/read/the-technology-transhumanists-want-in-their-kids-chips
