@@ -1,5 +1,11 @@
 ## Hack Education Weekly Newsletter, No. 112
 
+http://paleofuture.gizmodo.com/we-got-buckminster-fullers-fbi-file-1704777475
+
+http://www.newrepublic.com/article/121861/suey-parkof-cancelcolbert-fame-has-stopped-fighting-twitter
+
+http://theory.cribchronicles.com/2015/05/20/for-shame/
+
 http://www.mcsweeneys.net/articles/ms-hendersons-second-grade-classs-math-test
 
 http://www.roughtype.com/?p=5980
