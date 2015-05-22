@@ -1,5 +1,15 @@
 ## Hack Education Weekly Newsletter, No. 112
 
+http://dailyimprovisation.blogspot.com/2015/05/the-challenge-of-research-methodology.html
+
+http://www.wired.com/2015/05/inside-ilm/
+
+http://nymag.com/scienceofus/2015/05/can-fieldston-un-teach-racism.html?mid=nymag_press
+
+http://www.nytimes.com/2015/05/22/upshot/making-computer-science-more-inviting-a-look-at-what-works.html
+
+http://america.aljazeera.com/opinions/2015/5/western-canon-meet-trigger-warning.html
+
 http://paleofuture.gizmodo.com/we-got-buckminster-fullers-fbi-file-1704777475
 
 http://www.newrepublic.com/article/121861/suey-parkof-cancelcolbert-fame-has-stopped-fighting-twitter
