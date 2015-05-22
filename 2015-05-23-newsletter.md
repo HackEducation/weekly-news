@@ -1,5 +1,7 @@
 ## Hack Education Weekly Newsletter, No. 112
 
+https://medium.com/message/which-students-get-to-have-privacy-e9773f9a064
+
 http://dailyimprovisation.blogspot.com/2015/05/the-challenge-of-research-methodology.html
 
 http://www.wired.com/2015/05/inside-ilm/
