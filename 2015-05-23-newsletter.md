@@ -1,5 +1,7 @@
 ## Hack Education Weekly Newsletter, No. 112
 
+http://qz.com/410122/google-wants-to-make-creepy-bunny-robots-to-talk-to-your-kids/
+
 http://www.politico.com/magazine/story/2015/05/jeb-bush-mexico-118102.html#.VV-_4_lViko
 
 https://medium.com/message/which-students-get-to-have-privacy-e9773f9a064
