@@ -1,4 +1,5 @@
 ## Hack Education Weekly Newsletter, No. 112
+(http://tinyletter.com/audreywatters/letters/hack-education-weekly-newsletter-no-112)
 
 http://qz.com/410122/google-wants-to-make-creepy-bunny-robots-to-talk-to-your-kids/
 
