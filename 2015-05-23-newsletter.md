@@ -1,5 +1,7 @@
 ## Hack Education Weekly Newsletter, No. 112
 
+http://www.politico.com/magazine/story/2015/05/jeb-bush-mexico-118102.html#.VV-_4_lViko
+
 https://medium.com/message/which-students-get-to-have-privacy-e9773f9a064
 
 http://dailyimprovisation.blogspot.com/2015/05/the-challenge-of-research-methodology.html
