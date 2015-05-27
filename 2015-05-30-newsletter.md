@@ -1,5 +1,17 @@
 ## Hack Education Weekly Newsletter, No. 113
 
+http://socialmediaweek.org/blog/2015/04/oregon-trail-generation/
+
+http://mathbabe.org/2015/05/26/algorithms-and-accountability-of-those-who-deploy-them/
+
+http://www.washingtonpost.com/blogs/answer-sheet/wp/2015/05/24/pearsons-chief-education-adviser-extolls-the-joy-of-data/
+
+http://www.realcleareducation.com/2015/05/26/the_cost_of_an_adjunct_31383.html
+
+https://medium.com/message/writing-on-medium-88a5e99d86c9
+
+http://cogdogblog.com/2015/05/26/my-grandfather-was-kind-of-a-big-deal/
+
 http://boingboing.net/2015/05/24/remixing-taylor-swift-to-talk.html
 
 http://www.thedailybeast.com/articles/2015/05/21/uber-disability-laws-don-t-apply-to-us.html
