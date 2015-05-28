@@ -1,5 +1,11 @@
 ## Hack Education Weekly Newsletter, No. 113
 
+http://boingboing.net/2015/05/27/flying-monkey-costume-test-sho.html
+
+http://www.newrepublic.com/article/121909/did-sociologist-alice-goffman-drive-getaway-car-murder-plot
+
+http://www.theawl.com/2015/05/dead-sites-posting
+
 http://socialmediaweek.org/blog/2015/04/oregon-trail-generation/
 
 http://mathbabe.org/2015/05/26/algorithms-and-accountability-of-those-who-deploy-them/
