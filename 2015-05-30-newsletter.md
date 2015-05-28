@@ -2,6 +2,14 @@
 
 http://boingboing.net/2015/05/27/flying-monkey-costume-test-sho.html
 
+http://bryanalexander.org/2015/05/27/altschool-bespoke-education-innovation-just-for-the-1/
+
+http://www.psmag.com/books-and-culture/shelf-help-too-hot-to-handle-a-global-history-of-sex-education
+
+http://m.chronicle.com/article/Bashing-Bureaucracy/230293/
+
+http://www.wired.com/2015/05/gradberry-tara-ai/
+
 http://www.newrepublic.com/article/121909/did-sociologist-alice-goffman-drive-getaway-car-murder-plot
 
 http://www.theawl.com/2015/05/dead-sites-posting
