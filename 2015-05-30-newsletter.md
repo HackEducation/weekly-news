@@ -1,5 +1,13 @@
 ## Hack Education Weekly Newsletter, No. 113
 
+http://www.rollingstone.com/politics/news/whats-left-after-higher-education-is-dismantled-20150528
+
+http://boingboing.net/2015/05/28/the-mysterious-machine-behind.html
+
+https://www.hughrundle.net/2015/05/28/burn-it-all-down-2/
+
+https://josheyler.wordpress.com/2015/05/28/the-grief-of-pain/
+
 http://boingboing.net/2015/05/27/flying-monkey-costume-test-sho.html
 
 http://bryanalexander.org/2015/05/27/altschool-bespoke-education-innovation-just-for-the-1/
