@@ -1,5 +1,17 @@
 ## Hack Education Weekly Newsletter, No. 113
 
+http://tressiemc.com/2015/05/30/credit-scores-life-chances-and-algorithms/
+
+http://www.thenation.com/article/208441/how-companies-turn-your-facebook-activity-credit-score#
+
+https://medium.com/message/the-hypocrisy-of-the-internet-journalist-587d33f6279e
+
+http://www.nytimes.com/2015/05/31/magazine/what-we-dont-see.html
+
+http://www.theawl.com/2015/05/the-mind-of-a-teen-bot
+
+http://www.wired.com/2015/05/texts-teens-build-real-time-maps-crisis-america/
+
 http://www.rollingstone.com/politics/news/whats-left-after-higher-education-is-dismantled-20150528
 
 http://boingboing.net/2015/05/28/the-mysterious-machine-behind.html
