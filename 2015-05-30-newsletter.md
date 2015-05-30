@@ -1,5 +1,7 @@
 ## Hack Education Weekly Newsletter, No. 113
 
+http://www.theatlantic.com/technology/archive/2015/05/the-dragon-autopsy/393890/
+
 http://tressiemc.com/2015/05/30/credit-scores-life-chances-and-algorithms/
 
 http://www.thenation.com/article/208441/how-companies-turn-your-facebook-activity-credit-score#
