@@ -1,5 +1,13 @@
 ## Hack Education Weekly Newsletter, No. 114
 
+http://www.theatlantic.com/education/archive/2015/06/why-technology-alone-wont-fix-schools/394727/
+
+http://www.nytimes.com/2015/06/07/magazine/the-agency.html
+
+http://journals.uic.edu/ojs/index.php/fm/article/view/5641/4575
+
+http://gizmodo.com/meanwhile-in-the-future-football-has-been-banned-1708428656
+
 http://edutechnicalities.com/articles/the-golden-age-of-education-that-never-was/
 
 http://text-patterns.thenewatlantis.com/2015/06/more-on-californian-ideology.html
