@@ -1,5 +1,13 @@
 ## Hack Education Weekly Newsletter, No. 114
 
+http://www.nytimes.com/2015/06/05/fashion/mens-style/farewell-my-lovely-cigarettes.html
+
+http://www.theguardian.com/books/2015/jun/03/ursula-k-le-guin-amazon-bs-machine
+
+https://www.facebook.com/sheryl/posts/10155617891025177:0
+
+https://itself.wordpress.com/2015/06/03/kids-these-days/
+
 http://www.slate.com/blogs/future_tense/2015/06/03/usa_freedom_act_before_snowden_librarians_were_the_anti_surveillance_heroes.html
 
 http://www.theawl.com/2015/06/hello-and-goodbye-in-portuguese
