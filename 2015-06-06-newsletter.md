@@ -1,5 +1,17 @@
 ## Hack Education Weekly Newsletter, No. 114
 
+http://www.slate.com/blogs/future_tense/2015/06/03/usa_freedom_act_before_snowden_librarians_were_the_anti_surveillance_heroes.html
+
+http://www.theawl.com/2015/06/hello-and-goodbye-in-portuguese
+
+http://blog.longreads.com/2015/06/02/after-water/
+
+http://www.joebower.org/2015/06/myth-blended-learning-is-next-ed-tech.html
+
+http://thefrailestthing.com/2015/06/03/resisting-the-habits-of-the-algorithmic-mind/
+
+http://foreignpolicy.com/2015/06/03/why-technology-hasnt-delivered-more-democracy-democratic-transition/
+
 http://www.theatlantic.com/education/archive/2015/06/why-technology-alone-wont-fix-schools/394727/
 
 http://www.nytimes.com/2015/06/07/magazine/the-agency.html
