@@ -1,5 +1,13 @@
 ## Hack Education Weekly Newsletter, No. 114
 
+http://www.nytimes.com/2015/06/05/opinion/edward-snowden-the-world-says-no-to-surveillance.html
+
+http://www.nytimes.com/2015/06/04/opinion/zeynep-tufekci-mark-zuckerberg-let-me-pay-for-facebook.html
+
+http://kottke.org/15/06/the-kindergarten-class-in-the-forest
+
+http://go-to-hellman.blogspot.com/2015/06/towards-post-privacy-library.html
+
 http://www.nytimes.com/2015/06/05/fashion/mens-style/farewell-my-lovely-cigarettes.html
 
 http://www.theguardian.com/books/2015/jun/03/ursula-k-le-guin-amazon-bs-machine
