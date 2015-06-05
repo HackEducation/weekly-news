@@ -1,5 +1,7 @@
 ## Hack Education Weekly Newsletter, No. 114
 
+http://www.theverge.com/2015/5/29/8672371/learn-esperanto-language-duolingo-app-origin-history
+
 http://www.nytimes.com/2015/06/05/opinion/edward-snowden-the-world-says-no-to-surveillance.html
 
 http://www.nytimes.com/2015/06/04/opinion/zeynep-tufekci-mark-zuckerberg-let-me-pay-for-facebook.html
