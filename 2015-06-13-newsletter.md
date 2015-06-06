@@ -1,1 +1,1 @@
-## Hack Education Weekly Newsletter, No. 
+## Hack Education Weekly Newsletter, No. 115
