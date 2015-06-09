@@ -6,6 +6,8 @@ https://twitter.com/joncgoodwin/status/607284561492344833/photo/1
 
 http://fusion.net/story/146648/who-wrote-this-amazing-mysterious-book-satirizing-tech-startup-culture/
 
+http://www.bankstreet.edu/campus-beyond/news/2015/06/02/richard-rothstein-receives-honorary-doctorate/373/?utm_source=Economic+Policy+Institute&utm_campaign=b9cac75859-EPI_News_06_05_156_5_2015&utm_medium=email&utm_term=0_e7c5826c50-b9cac75859-55920841
+
 http://text-patterns.thenewatlantis.com/2015/06/the-technological-history-of-modernity.html
 
 https://www.edsurge.com/n/2015-06-08-don-t-let-evidence-stifle-innovation-in-education
