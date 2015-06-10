@@ -1,5 +1,13 @@
 ## Hack Education Weekly Newsletter, No. 115
 
+http://boingboing.net/2015/06/09/how-hip-hop-can-teach-you-to-c.html
+
+http://educationnext.org/twitter-says-education-policy-debate/
+
+https://larrycuban.wordpress.com/2015/06/09/palimpsest-of-school-reform-personalized-learning/
+
+https://twitter.com/virginmoney/status/608182215395131392
+
 https://spokeandhub.wordpress.com/2015/06/06/the-fortune-in-your-head/
 
 https://twitter.com/joncgoodwin/status/607284561492344833/photo/1
