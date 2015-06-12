@@ -2,6 +2,8 @@
 
 http://www.uncomputing.org/?p=1658
 
+http://time.com/3828576/sex-education-1940s/
+
 http://musicfordeckchairs.com/blog/2015/06/10/gratis/
 
 http://www.bloomberg.com/graphics/2015-paul-ford-what-is-code/
