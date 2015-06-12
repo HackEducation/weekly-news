@@ -1,5 +1,13 @@
 ## Hack Education Weekly Newsletter, No. 115
 
+http://www.uncomputing.org/?p=1658
+
+http://musicfordeckchairs.com/blog/2015/06/10/gratis/
+
+http://www.bloomberg.com/graphics/2015-paul-ford-what-is-code/
+
+http://scholar.harvard.edu/jmnoonan/blog/choosing-battle-fight-educational-justice
+
 http://boingboing.net/2015/06/09/how-hip-hop-can-teach-you-to-c.html
 
 http://educationnext.org/twitter-says-education-policy-debate/
