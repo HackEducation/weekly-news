@@ -1,5 +1,23 @@
 ## Hack Education Weekly Newsletter, No. 115
 
+http://www.yasminnair.net/content/rachel-dolezal-and-materiality-race
+
+http://www.racismreview.com/blog/2015/06/12/rachel-dolezal-racial-identity-trouble-with-white-womanhood/
+
+http://boingboing.net/2015/06/12/historic-photographs-transform.html
+
+http://www.popularmechanics.com/technology/a16014/history-of-the-bbs-documentary/
+
+https://medium.com/message/the-internet-of-tweets-581cb63ece80
+
+http://penguinrandomhouse.ca/hazlitt/feature/warrior-womans-work#.VXtJj-UU_WA.facebook
+
+http://www.thenation.com/blog/209793/irresistible-realness-dusty-rhodes
+
+http://www.universityaffairs.ca/opinion/speculative-diction/high-profile-academic-fraud-symptom-of-underlying-dysfunction/
+
+http://www.salon.com/2015/06/11/im_almost_to_the_point_of_wanting_them_all_segregated_texas_teacher_pens_breathtakingly_racist_mckinney_post/
+
 http://www.uncomputing.org/?p=1658
 
 http://time.com/3828576/sex-education-1940s/
