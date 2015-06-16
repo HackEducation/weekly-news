@@ -1,5 +1,9 @@
 ## Hack Education Weekly Newsletter, No. 116
 
+http://thenewinquiry.com/blogs/zunguzungu/when-game-of-thrones-stopped-being-necessary/
+
+http://www.takepart.com/article/2015/06/15/teach-for-america-black-lives-matter-activism
+
 http://boingboing.net/2015/06/15/the-internet-may-not-be-the-qu.html
 
 http://shermandorn.com/wordpress/?p=7956
