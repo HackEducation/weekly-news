@@ -1,5 +1,11 @@
 ## Hack Education Weekly Newsletter, No. 116
 
+http://www.slate.com/articles/life/education/2015/06/scott_walker_and_the_post_tenure_university_an_apocalyptic_scenario.html?wpsrc=sh_all_dt_tw_top
+
+http://ecs.sagepub.com/content/18/4-5/479.full.pdf+html
+
+http://bookforum.com/inprint/022_02/14612
+
 http://www.theatlantic.com/entertainment/archive/2015/06/clear-the-kitchen-table-how-apple-and-ibm-marketed-the-first-personal-computers/396047/
 
 http://www.newyorker.com/magazine/2015/06/22/the-story-of-a-hate-crime
