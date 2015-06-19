@@ -1,5 +1,21 @@
 ## Hack Education Weekly Newsletter, No. 116
 
+http://w2.vatican.va/content/francesco/en/encyclicals/documents/papa-francesco_20150524_enciclica-laudato-si.html
+
+http://www.mcsweeneys.net/articles/rubric-for-the-rubric-concerning-students-core-educational-competency-in-reading-things-in-books-and-writing-about-them
+
+http://rolinmoe.org/2015/06/18/we-are-rockstar-educators/
+
+http://www.theatlantic.com/politics/archive/2015/06/take-down-the-confederate-flag-now/396290/
+
+https://twitter.com/xuhulk/status/611598852836208641
+
+https://twitter.com/techcrunch/status/611599310065659905
+
+http://blog.mrmeyer.com/2015/if-math-is-the-aspirin-then-how-do-you-create-the-headache/
+
+https://instagram.com/p/4E7Qd2oQi-/
+
 http://www.slate.com/articles/life/education/2015/06/scott_walker_and_the_post_tenure_university_an_apocalyptic_scenario.html?wpsrc=sh_all_dt_tw_top
 
 http://ecs.sagepub.com/content/18/4-5/479.full.pdf+html
