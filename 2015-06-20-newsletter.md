@@ -4,6 +4,8 @@ http://w2.vatican.va/content/francesco/en/encyclicals/documents/papa-francesco_2
 
 http://www.mcsweeneys.net/articles/rubric-for-the-rubric-concerning-students-core-educational-competency-in-reading-things-in-books-and-writing-about-them
 
+http://blogs.adobe.com/conversations/2015/06/who-created-pdf.html
+
 http://rolinmoe.org/2015/06/18/we-are-rockstar-educators/
 
 http://www.theatlantic.com/politics/archive/2015/06/take-down-the-confederate-flag-now/396290/
