@@ -1,5 +1,9 @@
 ## Hack Education Weekly Newsletter, No. 116
 
+http://www.theatlantic.com/politics/archive/2015/06/blessed-are-the-peacemakers/396365/
+
+http://parkerhiggins.net/2015/06/honoring-the-history-of-charlestons-emanuel-ame-church-on-wikipedia/
+
 http://w2.vatican.va/content/francesco/en/encyclicals/documents/papa-francesco_20150524_enciclica-laudato-si.html
 
 http://mfeldstein.com/the-educause-ngdle-and-an-api-of-ones-own/
