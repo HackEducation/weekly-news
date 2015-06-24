@@ -12,6 +12,14 @@ http://www.newrepublic.com/article/122084/what-media-got-wrong-about-our-sesame-
 
 https://www.schneier.com/blog/archives/2015/06/history_of_the_.html
 
+http://alex-reid.net/2015/06/hanging-on-in-quiet-desperation-is-the-english-way.html
+
+http://jezebel.com/how-to-avoid-indoctrination-at-the-hands-of-your-libera-1713342074
+
+http://www.theatlantic.com/education/archive/2015/06/the-secret-power-of-moocs/396608/
+
+http://www.theatlantic.com/technology/archive/2015/06/the-internet-of-things-you-dont-really-need/396485/
+
 http://www.realcleareducation.com/2015/06/22/how_the_gi_bill_changed_the_face_of_higher_ed_32094.html
 
 https://allmoocs.wordpress.com/2015/06/22/what-the-researchers-got-wrong-about-their-sesame-street-education-study/
