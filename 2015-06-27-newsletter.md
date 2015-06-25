@@ -1,5 +1,27 @@
 ## Hack Education Weekly Newsletter, No. 117
 
+http://www.theatlantic.com/education/archive/2015/06/video-games-education-reform/396680/
+
+http://boingboing.net/2015/06/25/is-alphasmart-the-ultimate-wri.html
+
+http://alex-reid.net/2015/06/digital-ethics-in-a-jobless-future.html
+
+http://www.buzzfeed.com/charliewarzel/how-reddit-works-as-an-incubator-of-hate#.ck5mKrPNm
+
+http://hapgood.us/2015/06/24/lowest-content-denominator/
+
+http://www.newrepublic.com/article/122110/i-dont-want-be-excuse-racist-violence-charleston
+
+https://medium.com/@hellogerard/waiting-for-kindergarten-62a14d4f1ce5
+
+http://www.edcentral.org/sesame-street-mooc/
+
+http://www.thebaffler.com/salvos/academy-fight-song
+
+http://www.theawl.com/2015/06/the-new-york-times-and-criticism
+
+http://www.veletsianos.com/2015/06/24/a-parallel-even-shadow-scholarly-system/
+
 http://sylviamartinez.com/making-is-political-stance/
 
 http://torrentfreak.com/the-dawn-of-online-music-piracy-150620/
