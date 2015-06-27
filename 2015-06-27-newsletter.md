@@ -1,5 +1,7 @@
 ## Hack Education Weekly Newsletter, No. 117
 
+https://medium.com/futures-exchange/special-economic-zone-49262789a31b
+
 http://www.theatlantic.com/education/archive/2015/06/video-games-education-reform/396680/
 
 http://boingboing.net/2015/06/25/is-alphasmart-the-ultimate-wri.html
