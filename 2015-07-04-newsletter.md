@@ -2,6 +2,10 @@
 
 http://boundary2.org/2015/07/01/towards-a-bright-mountain-laudato-si-as-critique-of-technology/
 
+http://tressiemc.com/2015/07/01/new-topics-in-social-computing-data-and-education/
+
+https://modelviewculture.com/pieces/smart-toys-and-the-endangered-solitude-of-childhood
+
 http://www.thebaffler.com/blog/unbearable-emptiness-politics-code/
 
 http://ethw.org/Archives:Bell_Labs_%26_The_Origins_of_the_Multimedia_Artist
