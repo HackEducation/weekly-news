@@ -4,6 +4,12 @@ http://boundary2.org/2015/07/01/towards-a-bright-mountain-laudato-si-as-critique
 
 http://tressiemc.com/2015/07/01/new-topics-in-social-computing-data-and-education/
 
+http://digg.com/video/apple-concept-video-1997-1987-awkward-strange
+
+https://edifiedlistener.wordpress.com/2015/07/02/in-deep-water-with-audrey-and-tressie/
+
+http://theoryculturesociety.org/review-of-rob-kitchins-the-data-revolution/
+
 https://modelviewculture.com/pieces/smart-toys-and-the-endangered-solitude-of-childhood
 
 http://www.thebaffler.com/blog/unbearable-emptiness-politics-code/
