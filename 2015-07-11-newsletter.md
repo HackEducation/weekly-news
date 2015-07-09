@@ -1,5 +1,19 @@
 ## Hack Education Weekly Newsletter, No. 119
 
+http://www.psmag.com/business-economics/your-future-of-work-ideas-are-so-bad-no-like-achingly-bad-sit-down
+
+http://www.buzzfeed.com/josephbernstein/white-supremacy-lmfao-lol#.mdyGK1djG
+
+http://musicfordeckchairs.com/blog/2015/07/09/what-would-stampy-do/
+
+https://medium.com/message/why-the-great-glitch-of-july-8th-should-scare-you-b791002fff03
+
+http://www.theawl.com/2015/07/the-utopia-at-the-end-of-the-world
+
+http://rolinmoe.org/2015/07/08/education-has-changed-over-1000-years-it-has-also-stayed-the-same/
+
+http://penguinrandomhouse.ca/hazlitt/feature/whats-point-handwriting
+
 http://thinktankreview.co.uk/education/character-development-in-education/
 
 http://firstmonday.org/ojs/index.php/fm/article/view/5903/4660
