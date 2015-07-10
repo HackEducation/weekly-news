@@ -1,5 +1,7 @@
 ## Hack Education Weekly Newsletter, No. 119
 
+http://thefrailestthing.com/2015/07/09/humanistic-technology-criticism/
+
 http://www.psmag.com/business-economics/your-future-of-work-ideas-are-so-bad-no-like-achingly-bad-sit-down
 
 http://www.buzzfeed.com/josephbernstein/white-supremacy-lmfao-lol#.mdyGK1djG
