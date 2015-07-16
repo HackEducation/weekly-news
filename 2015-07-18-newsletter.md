@@ -2,6 +2,8 @@
 
 (Apologize for no newsletter last week)
 
+https://medium.com/message/why-the-great-glitch-of-july-8th-should-scare-you-b791002fff03
+
 http://thefrailestthing.com/2015/07/09/humanistic-technology-criticism/
 
 http://www.psmag.com/business-economics/your-future-of-work-ideas-are-so-bad-no-like-achingly-bad-sit-down
