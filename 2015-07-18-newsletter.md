@@ -2,6 +2,10 @@
 
 (Apologize for no newsletter last week)
 
+http://educationoutrage.blogspot.com/2015/07/reading-is-no-way-to-learn.html
+
+http://thefrailestthing.com/2015/07/12/digital-devices-and-learning-to-grow-up/
+
 https://medium.com/message/why-the-great-glitch-of-july-8th-should-scare-you-b791002fff03
 
 http://thefrailestthing.com/2015/07/09/humanistic-technology-criticism/
