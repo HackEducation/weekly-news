@@ -2,6 +2,8 @@
 
 (Apologize for no newsletter last week)
 
+https://medium.com/bright/the-web-we-need-to-give-students-311d97713713
+
 http://educationoutrage.blogspot.com/2015/07/reading-is-no-way-to-learn.html
 
 http://thefrailestthing.com/2015/07/12/digital-devices-and-learning-to-grow-up/
