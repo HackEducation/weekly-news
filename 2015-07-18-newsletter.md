@@ -2,6 +2,14 @@
 
 (Apologize for no newsletter last week)
 
+http://www.theatlantic.com/entertainment/archive/2015/07/fao-schwarz-brought-kids-to-the-class-wars/398702/
+
+http://www.theatlantic.com/education/archive/2015/07/the-1960s-experiment-childrens-tv/398681/
+
+http://blog.edtechie.net/mooc/the-role-of-personality-in-education/
+
+http://musicfordeckchairs.com/blog/2015/07/12/on-personality/
+
 https://medium.com/bright/the-web-we-need-to-give-students-311d97713713
 
 http://educationoutrage.blogspot.com/2015/07/reading-is-no-way-to-learn.html
