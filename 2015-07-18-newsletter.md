@@ -2,6 +2,16 @@
 
 (Apologize for no newsletter last week)
 
+https://posthegemony.files.wordpress.com/2015/07/wikimania_paper.pdf
+
+https://blog.pinboard.in/2015/07/pinboard_turns_six/
+
+https://medium.com/matter/the-web-we-have-to-save-2eb1fe15a426
+
+http://www.washingtonpost.com/opinions/we-cannot-let-the-internet-trolls-win/2015/07/16/91b1a2d2-2b17-11e5-bd33-395c05608059_story.html
+
+http://bavatuesdays.com/domains-and-the-cost-of-innovation/
+
 http://www.theatlantic.com/entertainment/archive/2015/07/fao-schwarz-brought-kids-to-the-class-wars/398702/
 
 http://www.theatlantic.com/education/archive/2015/07/the-1960s-experiment-childrens-tv/398681/
