@@ -1,5 +1,7 @@
 ## Hack Education Weekly Newsletter, No. 120
 
+http://hapgood.us/2015/07/21/beyond-conversation/
+
 http://niemanreports.org/articles/how-to-deter-doxxing/
 
 http://www.theatlantic.com/politics/archive/2015/07/ta-nehisi-coates-book-club/398972/
