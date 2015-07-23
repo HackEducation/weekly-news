@@ -1,5 +1,13 @@
 ## Hack Education Weekly Newsletter, No. 120
 
+http://edushyster.com/i-am-not-tom-brady/
+
+http://www.truth-out.org/opinion/item/31994-who-s-against-college-for-all
+
+http://idlewords.com/talks/web_design_first_100_years.htm
+
+http://www.nytimes.com/2015/07/24/upshot/the-fundamental-way-that-universities-are-an-illusion.html
+
 http://hapgood.us/2015/07/21/beyond-conversation/
 
 http://niemanreports.org/articles/how-to-deter-doxxing/
