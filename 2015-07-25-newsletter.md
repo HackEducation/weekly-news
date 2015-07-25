@@ -1,5 +1,13 @@
 ## Hack Education Weekly Newsletter, No. 120
 
+http://musicfordeckchairs.com/blog/2015/07/24/weighted-time/
+
+http://www.pri.org/stories/2015-07-24/technology-has-now-ushered-us-age-hyperemployment
+
+http://chronicle.com/blogs/ticker/that-time-donald-trump-started-a-university-and-an-amazing-blog/102305
+
+https://www.eff.org/deeplinks/2015/07/copyright-office-belongs-library
+
 http://edushyster.com/i-am-not-tom-brady/
 
 http://www.truth-out.org/opinion/item/31994-who-s-against-college-for-all
