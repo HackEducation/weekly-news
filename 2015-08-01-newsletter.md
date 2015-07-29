@@ -1,5 +1,13 @@
 ## Hack Education Weekly Newsletter, No. 121
 
+https://www.insidehighered.com/quicktakes/2015/07/29/world-where-educators-are-more-valued-athletes
+
+http://mathbabe.org/2015/07/29/women-in-tech-pipeline-versus-retention/ - https://medium.com/@racheltho/if-you-think-women-in-tech-is-just-a-pipeline-problem-you-haven-t-been-paying-attention-cb7a2073b996
+
+https://allmoocs.wordpress.com/2015/07/29/the-udacity-of-audacity-or-education-for-uber/
+
+http://www.ft.com/cms/s/2/3a3af70a-1a74-11e5-a130-2e7db721f996.html - http://billmoyers.com/2015/07/27/the-future-of-work-in-the-uber-economy/ - http://www.theguardian.com/technology/2015/jul/28/uber-lawlessness-sharing-economy-corporates-airbnb-google - http://www.technologyreview.com/news/539106/uber-for-education/
+
 http://www.hybridpedagogy.com/journal/on-labor-learning-conditions-and-affordable-education/
 
 https://medium.com/message/how-i-organized-a-series-of-six-panels-on-technology-with-only-women-speaking-bcb40a94f033
