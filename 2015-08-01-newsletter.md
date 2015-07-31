@@ -1,5 +1,11 @@
 ## Hack Education Weekly Newsletter, No. 121
 
+http://www.theatlantic.com/technology/archive/2015/07/futurism-sexism-men/400097/
+
+http://www.theawl.com/2015/07/in-no-charts
+
+http://olivierblanchard.net/stop-calling-it-the-sharing-economy-that-isnt-what-it-is/#.VbqiGAVJACU.twitter
+
 https://www.insidehighered.com/quicktakes/2015/07/29/world-where-educators-are-more-valued-athletes
 
 http://mathbabe.org/2015/07/29/women-in-tech-pipeline-versus-retention/ - https://medium.com/@racheltho/if-you-think-women-in-tech-is-just-a-pipeline-problem-you-haven-t-been-paying-attention-cb7a2073b996
