@@ -2,6 +2,12 @@
 
 http://www.theatlantic.com/technology/archive/2015/07/futurism-sexism-men/400097/
 
+http://www.nytimes.com/2015/08/02/education/edlife/liberal-arts-a-lost-cause.html
+
+http://fusion.net/story/175594/erasing-yourself-from-the-internet-is-really-really-hard/
+
+http://www.washingtonpost.com/news/the-intersect/wp/2015/07/31/inside-the-underage-sex-scandal-thats-tearing-vine-apart/
+
 http://www.theawl.com/2015/07/in-no-charts
 
 http://olivierblanchard.net/stop-calling-it-the-sharing-economy-that-isnt-what-it-is/#.VbqiGAVJACU.twitter
