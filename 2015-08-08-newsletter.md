@@ -11,3 +11,13 @@ https://medium.com/@AnneLBurns/graduation-day-gowns-photos-and-the-manufacturing
 https://medium.com/message/mark-zuckerberg-s-personal-news-shows-why-privacy-is-the-bedrock-of-an-open-and-connected-world-e0a1acea89bd
 
 https://www.tes.co.uk/news/blog/tom-bennett-sugata-mitra-and-hole-research
+
+http://recode.net/2015/07/31/in-the-shadow-of-second-life-virtual-reality-startups-say-this-time-itll-work-really/
+
+http://www.elearnspace.org/blog/2015/08/03/white-house-innovation-in-higher-education/
+
+http://www.psmag.com/business-economics/the-future-of-work-machines-pulling-ahead-quickly - http://text-patterns.thenewatlantis.com/2015/08/thrun-fisked.html
+
+http://robrhinehart.com/?p=1331
+
+http://www.salon.com/2015/08/03/reform_makes_broken_new_orleans_schools_worse_race_charters_testing_and_the_real_story_of_education_after_katrina/
