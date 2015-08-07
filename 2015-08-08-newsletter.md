@@ -8,6 +8,18 @@ https://medium.com/matter/the-unsafe-house-96151f0b746f
 
 https://medium.com/@AnneLBurns/graduation-day-gowns-photos-and-the-manufacturing-of-anxiety-2525aab0dd65
 
+http://www.vox.com/2015/8/6/9099357/internet-dead-end
+
+http://www.theatlantic.com/education/archive/2015/08/teachers-of-color-white-students/400553/
+
+http://www.theguardian.com/commentisfree/2015/aug/06/america-rich-write-about-poverty
+
+http://alex-reid.net/2015/08/what-if-special-higher-education-issue.html
+
+http://thebaffler.com/salvos/motown-shakedown
+
+http://testkitchen.huffingtonpost.com/ferguson-class-of-2014/?ncid=tweetlnkushpmg00000067
+
 https://medium.com/message/mark-zuckerberg-s-personal-news-shows-why-privacy-is-the-bedrock-of-an-open-and-connected-world-e0a1acea89bd
 
 https://www.tes.co.uk/news/blog/tom-bennett-sugata-mitra-and-hole-research
