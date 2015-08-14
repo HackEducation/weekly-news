@@ -6,6 +6,8 @@ http://bavatuesdays.com/digital-pedagogy-as-empowered-choice/
 
 http://fusion.net/story/181901/we-took-a-tour-of-the-abandoned-college-campuses-of-second-life/
 
+https://modelviewculture.com/pieces/the-accidental-classism-and-unintentional-racism-of-ios-development-for-children
+
 http://musicfordeckchairs.com/blog/2015/08/13/access-to-care/
 
 http://cogdogblog.com/2015/08/12/maggies-digital-content-farm/
