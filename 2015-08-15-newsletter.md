@@ -2,6 +2,18 @@
 
 http://hapgood.us/2015/08/08/the-five-elements-of-the-socratic-website/
 
+http://bavatuesdays.com/digital-pedagogy-as-empowered-choice/
+
+http://fusion.net/story/181901/we-took-a-tour-of-the-abandoned-college-campuses-of-second-life/
+
+http://musicfordeckchairs.com/blog/2015/08/13/access-to-care/
+
+http://cogdogblog.com/2015/08/12/maggies-digital-content-farm/
+
+http://chronicle.com/blogs/wiredcampus/machine-teaching-is-seen-as-way-to-develop-personalized-curricula/57209
+
+http://thenewinquiry.com/essays/against-students/
+
 http://www.wired.com/2015/08/us-military-helped-invent-cheetos/
 
 http://bavatuesdays.com/reclaiming-marxs-capital/
