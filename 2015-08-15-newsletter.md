@@ -1,5 +1,15 @@
 ## Hack Education Weekly Newsletter, No. 123
 
+https://www.jacobinmag.com/2015/08/do-what-you-love-miya-tokumitsu-work-creative-passion/
+
+http://www.newrepublic.com/article/122456/final-file
+
+http://www.adweek.com/adfreak/man-poses-target-facebook-trolls-haters-its-gender-neutral-move-epic-replies-166364
+
+http://www.tampabay.com/projects/2015/investigations/pinellas-failure-factories/5-schools-segregation/
+
+http://www.theawl.com/2015/08/time-is-a-privacy-setting
+
 http://hapgood.us/2015/08/08/the-five-elements-of-the-socratic-website/
 
 http://bavatuesdays.com/digital-pedagogy-as-empowered-choice/
