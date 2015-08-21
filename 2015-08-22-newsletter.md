@@ -1,5 +1,9 @@
 ## Hack Education Weekly Newsletter, No. 124
 
+http://boingboing.net/2015/08/18/the-end-of-the-internet-dream.html
+
+http://hapgood.us/2015/08/18/educational-unbundling-and-the-culture-of-endless-hustle/
+
 http://boingboing.net/2015/08/18/brief-history-of-the-cootie-ca.html
 
 https://www.linkedin.com/pulse/what-would-take-save-edtech-ben-werdmuller
