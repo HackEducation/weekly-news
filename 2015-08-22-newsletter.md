@@ -2,6 +2,10 @@
 
 http://boingboing.net/2015/08/18/the-end-of-the-internet-dream.html
 
+http://www.seriouseats.com/2015/08/history-of-jell-o-salad.html?src=longreads
+
+http://bavatuesdays.com/a-long-short-history-of-reclaim-hosting/
+
 http://hapgood.us/2015/08/18/educational-unbundling-and-the-culture-of-endless-hustle/
 
 http://boingboing.net/2015/08/18/brief-history-of-the-cootie-ca.html
