@@ -1,5 +1,11 @@
 ## Hack Education Weekly Newsletter, No. 125
 
+http://www.motherjones.com/politics/2015/08/opt-out-standardized-testing-overload
+
+http://www.newyorker.com/magazine/2015/08/24/starting-over-dept-of-social-studies-malcolm-gladwell
+
+http://boingboing.net/2015/08/25/brief-history-of-hand-dryers.html
+
 http://www.theatlantic.com/entertainment/archive/2015/08/saving-the-scream-queens/401141/
 
 https://medium.com/synapse/writing-as-making-4536395644b6
