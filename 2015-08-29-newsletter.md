@@ -2,6 +2,16 @@
 
 http://www.motherjones.com/politics/2015/08/opt-out-standardized-testing-overload
 
+http://boingboing.net/2015/08/25/hypertext-word-ted-nelson.html
+
+http://blogs.swarthmore.edu/burke/blog/2015/08/25/we-are-not-who-we-will-become/
+
+http://arstechnica.com/information-technology/2015/08/how-linux-was-born-as-told-by-linus-torvalds-himself/
+
+http://www.nytimes.com/2015/08/30/magazine/the-meaning-of-serena-williams.html
+
+http://www.theatlantic.com/entertainment/archive/2015/08/born-to-run-at-40/402137/
+
 http://www.newyorker.com/magazine/2015/08/24/starting-over-dept-of-social-studies-malcolm-gladwell
 
 http://boingboing.net/2015/08/25/brief-history-of-hand-dryers.html
