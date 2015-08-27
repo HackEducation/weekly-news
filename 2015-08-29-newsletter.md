@@ -2,6 +2,8 @@
 
 http://www.motherjones.com/politics/2015/08/opt-out-standardized-testing-overload
 
+http://text-patterns.thenewatlantis.com/2015/08/twitter-and-emotional-resilience.html
+
 http://boingboing.net/2015/08/25/hypertext-word-ted-nelson.html
 
 http://blogs.swarthmore.edu/burke/blog/2015/08/25/we-are-not-who-we-will-become/
