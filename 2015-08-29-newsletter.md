@@ -2,6 +2,8 @@
 
 http://www.motherjones.com/politics/2015/08/opt-out-standardized-testing-overload
 
+http://redpincushion.us/blog/research-2/qualitative-in-data-science/
+
 http://er.educause.edu/ero/articles/2015/8/data-technology-and-the-great-unbundling-of-higher-education
 
 http://text-patterns.thenewatlantis.com/2015/08/twitter-and-emotional-resilience.html
