@@ -17,3 +17,7 @@ http://www.tonybates.ca/2015/09/01/book-review-a-history-of-the-open-university/
 http://www.theatlantic.com/technology/archive/2015/08/ballpoint-pens-object-lesson-history-handwriting/402205/
 
 http://www.theatlantic.com/technology/archive/2015/09/introducing-the-archive-corps/403135/
+
+https://medium.com/message/hello-future-pastebin-readers-39d9b4eb935f
+
+http://www.ethanzuckerman.com/blog/2015/09/02/renormalizing-hitchhiking-2/
