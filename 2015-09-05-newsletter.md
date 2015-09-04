@@ -4,6 +4,10 @@ https://lareviewofbooks.org/essay/how-does-twitter-use-you/
 
 http://www.newyorker.com/magazine/2015/08/31/class-notes-annals-of-education-jelani-cobb
 
+http://www.newrepublic.com/article/122728/well-never-have-tech-utopia
+
+http://boingboing.net/2015/09/03/business-is-better-than-ever.html
+
 http://kieranhealy.org/files/papers/fuck-nuance.pdf
 
 http://hazlitt.net/feature/terror-archive
