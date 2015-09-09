@@ -15,3 +15,9 @@ http://www.nytimes.com/2015/09/13/magazine/why-we-should-fear-university-inc.htm
 http://www.hybridpedagogy.com/journal/public-archives-and-new-knowledge/
 
 http://www.theawl.com/2015/09/dox-dox-dox-ii-the-doxxing
+
+http://kottke.org/15/09/the-history-of-technology-is-the-history-of-pockets
+
+https://medium.com/@Kendra_Serra/but-what-did-the-daughter-think-8d9233789b4f
+
+http://www.vice.com/read/student-teaching-0000748-v22n9
