@@ -6,6 +6,12 @@ https://www.youtube.com/watch?v=crbfSY6vf7s
 
 http://www.samplereality.com/2015/09/05/your-mistake-was-a-vital-strategy/
 
+http://the-toast.net/2015/09/10/2012-era-life/
+
+http://www.slate.com/articles/technology/bitwise/2015/09/luddism_today_there_s_an_important_place_for_it_really.single.html
+
+http://spectrum.ieee.org/tech-talk/telecom/wireless/whats-next-after-25-years-of-wifi
+
 http://followersoftheapocalyp.se/i-watch-the-ripples-change-their-size-but-never-leave-the-stream-altc-2015/
 
 http://www.everydayshouldbesaturday.com/2015/9/8/9249681/broke
