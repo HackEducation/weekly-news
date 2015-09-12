@@ -10,6 +10,10 @@ http://the-toast.net/2015/09/10/2012-era-life/
 
 http://www.slate.com/articles/technology/bitwise/2015/09/luddism_today_there_s_an_important_place_for_it_really.single.html
 
+http://www.nytimes.com/2015/09/13/magazine/why-we-should-fear-university-inc.html
+
+https://storify.com/Knitting_Kninja/ranting-about-neo-victorians
+
 http://spectrum.ieee.org/tech-talk/telecom/wireless/whats-next-after-25-years-of-wifi
 
 http://followersoftheapocalyp.se/i-watch-the-ripples-change-their-size-but-never-leave-the-stream-altc-2015/
