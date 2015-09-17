@@ -1,5 +1,17 @@
 ## Hack Education Weekly Newsletter, No. 128
 
+http://hapgood.us/2015/09/17/toward-a-less-self-assertive-web/
+
+http://www.richard-hall.org/2015/09/17/on-disorder-and-faith/
+
+http://www.psmag.com/politics-and-law/the-criminalization-of-the-american-schoolyard
+
+http://www.hybridpedagogy.com/journal/rationalizing-sisyphus/
+
+http://www.seanmichaelmorris.com/microaggressions-coddling-and-president-obama/
+
+http://opencontent.org/blog/archives/3991
+
 http://www.nytimes.com/2015/09/13/opinion/sunday/what-the-privileged-poor-can-teach-us.html
 
 http://theory.cribchronicles.com/2015/09/15/digital-pedagogy-hospitality-and-the-hot-mess/
