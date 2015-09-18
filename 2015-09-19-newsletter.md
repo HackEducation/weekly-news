@@ -4,6 +4,14 @@ http://hapgood.us/2015/09/17/toward-a-less-self-assertive-web/
 
 http://www.richard-hall.org/2015/09/17/on-disorder-and-faith/
 
+http://www.nytimes.com/2015/09/13/magazine/what-is-the-point-of-college.html
+
+http://www.theverge.com/2015/9/17/9338963/welcome-to-hell-apple-vs-google-vs-facebook-and-the-slow-death-of-the-web
+
+http://www.avclub.com/article/if-you-return-jedi-hate-ewoks-you-understand-femin-224765
+
+http://www.techrepublic.com/article/nasa-shows-the-world-its-20-year-vr-experiment-to-train-astronauts/
+
 http://www.psmag.com/politics-and-law/the-criminalization-of-the-american-schoolyard
 
 http://www.hybridpedagogy.com/journal/rationalizing-sisyphus/
