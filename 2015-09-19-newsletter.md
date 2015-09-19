@@ -2,6 +2,8 @@
 
 http://hapgood.us/2015/09/17/toward-a-less-self-assertive-web/
 
+https://modelviewculture.com/pieces/technology-colonialism
+
 http://www.richard-hall.org/2015/09/17/on-disorder-and-faith/
 
 http://www.nytimes.com/2015/09/13/magazine/what-is-the-point-of-college.html
