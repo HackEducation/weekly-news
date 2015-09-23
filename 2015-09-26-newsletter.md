@@ -1,5 +1,13 @@
 ## ## Hack Education Weekly Newsletter, No. 129
 
+http://otlw.co/
+
+http://theleveller.org/2015/09/british-really-laughing/ (maybe also include a link to Rebecca Onion's review of We Believe the Children?)
+
+http://www.theawl.com/2015/09/a-disruption-cautionary-tale
+
+https://medium.com/message/do-you-know-what-your-toddler-is-watching-on-youtube-409e71bd4cba
+
 http://hazlitt.net/feature/goes-all-way-queen-puzzle-book-drove-england-madness
 
 http://www.newrepublic.com/article/122678/down-rabbit-hole#
