@@ -1,5 +1,19 @@
 ## ## Hack Education Weekly Newsletter, No. 129
 
+https://medium.com/climate-desk/the-volkswagen-scandal-is-just-the-beginning-ba02110925cf
+
+http://thenewinquiry.com/essays/lost-in-the-supermarket/
+
+http://www.nytimes.com/2015/09/24/opinion/volkswagen-and-the-era-of-cheating-software.html
+
+http://www.politico.com/agenda/story/2015/09/department-of-education-history-000235
+
+http://www.theawl.com/2015/09/everything-bad-is-actually-good
+
+http://paleofuture.gizmodo.com/50-years-of-the-jetsons-why-the-show-still-matters-512621126
+
+http://www.csmonitor.com/World/Passcode/Passcode-Voices/2015/0923/How-obsessive-self-tracking-is-eroding-privacy-for-everyone
+
 http://otlw.co/
 
 http://theleveller.org/2015/09/british-really-laughing/ (maybe also include a link to Rebecca Onion's review of We Believe the Children?)
