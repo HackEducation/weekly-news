@@ -2,6 +2,18 @@
 
 https://medium.com/climate-desk/the-volkswagen-scandal-is-just-the-beginning-ba02110925cf
 
+http://theory.cribchronicles.com/2015/09/25/the-morning-after-we-all-became-social-media-gurus/
+
+http://idlewords.com/talks/what_happens_next_will_amaze_you.htm
+
+http://abject.ca/sayonara-hello/
+
+http://nowiknow.com/the-history-of-the-three-finger-salute/
+
+http://boingboing.net/2015/09/24/history-of-the-hoodie-2.html
+
+http://www.bloomberg.com/features/2015-click-fraud/
+
 http://thenewinquiry.com/essays/lost-in-the-supermarket/
 
 http://www.nytimes.com/2015/09/24/opinion/volkswagen-and-the-era-of-cheating-software.html
