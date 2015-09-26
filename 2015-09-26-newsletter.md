@@ -1,5 +1,15 @@
 ## ## Hack Education Weekly Newsletter, No. 129
 
+http://kottke.org/15/09/the-history-of-cartography
+
+http://www.nytimes.com/2015/09/25/us/police-program-aims-to-pinpoint-those-most-likely-to-commit-crimes.html
+
+http://alex-reid.net/2015/09/algorithm-objects-people-are-the-things-they-do.html
+
+http://gizmodo.com/the-early-pda-that-major-technology-companies-passed-on-1732630334
+
+http://www.psmag.com/books-and-culture/a-low-and-distant-paradise
+
 https://medium.com/climate-desk/the-volkswagen-scandal-is-just-the-beginning-ba02110925cf
 
 http://theory.cribchronicles.com/2015/09/25/the-morning-after-we-all-became-social-media-gurus/
