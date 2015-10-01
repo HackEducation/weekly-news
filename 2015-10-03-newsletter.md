@@ -14,3 +14,10 @@ http://www.miaminewtimes.com/news/florida-teen-arrested-for-science-experiment-n
 
 http://motherboard.vice.com/read/did-peta-name-the-right-macaque-in-its-monkey-selfie-lawsuit
 
+http://gizmodo.com/rush-limbaugh-thinks-gizmodo-really-wants-to-geneticall-1733892487
+
+http://www.winemag.com/Web-2015/Burger-King-Releases-Flame-Grilled-Wine-to-Pair-with-Whopper-Burgers/
+
+http://www.eater.com/2015/9/30/9394261/ina-garten
+
+http://thenewinquiry.com/essays/the-algorithm-and-the-watchtower/
