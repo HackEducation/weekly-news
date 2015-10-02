@@ -2,6 +2,12 @@
 
 http://america.aljazeera.com/opinions/2015/9/how-planned-parenthood-saved-my-vagina.html
 
+http://kottke.org/15/10/histography-an-interactive-timeline-of-all-history
+
+https://www.youtube.com/watch?v=VpTf1GFjCd8
+
+http://boingboing.net/2015/10/01/women-future-trading-cards.html
+
 http://blogs.law.harvard.edu/doc/2015/09/28/beyond-ad-blocking-the-biggest-boycott-in-human-history/
 
 http://fusion.net/story/204007/students-ruined-by-for-profit-colleges-fight-back/
