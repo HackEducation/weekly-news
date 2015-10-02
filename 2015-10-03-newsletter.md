@@ -2,6 +2,8 @@
 
 http://america.aljazeera.com/opinions/2015/9/how-planned-parenthood-saved-my-vagina.html
 
+http://www.businessinsider.com/medium-pr-newswire-revisited-2015-9
+
 http://kottke.org/15/10/histography-an-interactive-timeline-of-all-history
 
 https://www.youtube.com/watch?v=VpTf1GFjCd8
