@@ -2,6 +2,8 @@
 
 http://america.aljazeera.com/opinions/2015/9/how-planned-parenthood-saved-my-vagina.html
 
+http://venturebeat.com/2015/10/02/mattels-google-cardboard-powered-view-master-is-now-on-sale/
+
 http://www.businessinsider.com/medium-pr-newswire-revisited-2015-9
 
 http://kottke.org/15/10/histography-an-interactive-timeline-of-all-history
