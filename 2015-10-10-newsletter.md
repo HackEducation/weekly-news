@@ -1,5 +1,11 @@
 ## Hack Education Weekly Newsletter, No. 131
 
+https://theintercept.com/2015/10/06/stop-sending-jonathan-franzen-novels/
+
+http://www.vqronline.org/memoir-articles/2015/10/begin-cutting
+
+http://www.uncomputing.org/?p=1692
+
 http://nowviskie.org/2015/on-capacity-and-care/
 
 https://www.dissentmagazine.org/article/tressie-mcmillan-cottom-why-free-college-necessary
