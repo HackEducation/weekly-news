@@ -1,5 +1,7 @@
 ## Hack Education Weekly Newsletter, No. 131
 
+http://idlewords.com/talks/haunted_by_data.htm
+
 https://theintercept.com/2015/10/06/stop-sending-jonathan-franzen-novels/
 
 http://www.vqronline.org/memoir-articles/2015/10/begin-cutting
