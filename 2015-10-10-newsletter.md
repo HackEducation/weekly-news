@@ -2,6 +2,8 @@
 
 http://idlewords.com/talks/haunted_by_data.htm
 
+http://digg.com/2015/myers-briggs-secret-history
+
 https://theintercept.com/2015/10/06/stop-sending-jonathan-franzen-novels/
 
 http://www.vqronline.org/memoir-articles/2015/10/begin-cutting
