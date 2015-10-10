@@ -1,5 +1,9 @@
 ## Hack Education Weekly Newsletter, No. 131
 
+http://davecormier.com/edblog/2015/10/09/asynchronous-course-hour-systemic-impacts-of-the-digital-on-higher-education/
+
+http://alex-reid.net/2015/10/digital-rhetoric-and-the-resident-web.html
+
 http://idlewords.com/talks/haunted_by_data.htm
 
 http://digg.com/2015/myers-briggs-secret-history
