@@ -2,6 +2,14 @@
 
 http://musicfordeckchairs.com/blog/2015/10/15/the-stitches-of-the-day/
 
+http://educationaltechnology.ca/couros/2620
+
+https://medium.com/bad-words/why-twitter-s-dying-and-what-you-can-learn-from-it-9ed233e37974
+
+http://www.hebaamin.com/arabian-street-artists-bomb-homeland-why-we-hacked-an-award-winning-series/
+
+http://www.theatlantic.com/technology/archive/2015/10/raiders-of-the-lost-web/409210/
+
 https://adaptivelearninginelt.wordpress.com/2015/10/03/behaviourism-and-adaptive-learning/
 
 http://www.wired.com/2015/10/margaret-hamilton-nasa-apollo/
