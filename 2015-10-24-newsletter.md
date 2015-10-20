@@ -2,6 +2,18 @@
 
 http://littleprofessor.typepad.com/the_little_professor/2015/10/how-to-write-an-essay-about-teaching-that-will-not-be-published-in-the-nyt-chronicle-ihe-or-anywhere.html
 
+https://larrycuban.wordpress.com/2015/10/20/does-integrating-computers-into-lessons-mean-that-teaching-has-changed/
+
+http://www.thetattooedprof.com/archives/491
+
+http://www.slate.com/articles/technology/users/2015/10/hate_speech_harassment_and_trolling_online_some_history.html
+
+http://moreorlessbunk.net/technology/call-me-carl/
+
+http://dmlcentral.net/disruption-and-innovation-divided-by-design/
+
+http://www.plannedobsolescence.net/opening-up-open-access/
+
 https://allmoocs.wordpress.com/2015/10/17/avoiding-the-mediocre-middle/
 
 http://mfeldstein.com/the-rise-of-antisocial-deconstructivism/
