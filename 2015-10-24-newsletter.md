@@ -1,5 +1,19 @@
 ## Hack Education Weekly Newsletter, No. 133
 
+https://www.insidehighered.com/blogs/college-ready-writing/dlrn15-%E2%80%93-story
+
+http://www.nytimes.com/2015/10/18/opinion/sunday/lecture-me-really.html
+
+http://blog.edtechie.net/edtech/half-awake-in-our-fake-empire/
+
+https://medium.com/message/the-trouble-with-the-uber-for-economy-d2a6fa1bd28f#.ukjg2fvt7
+
+http://www.bloomberg.com/features/2015-americas-top-inventor-lowell-wood/
+
+http://www.danah.org/papers/talks/2015/ParkerLecture.html
+
+http://thesocietypages.org/cyborgology/2015/10/19/complicating-the-digital-divide-technological-innovation-in-a-small-town/
+
 http://littleprofessor.typepad.com/the_little_professor/2015/10/how-to-write-an-essay-about-teaching-that-will-not-be-published-in-the-nyt-chronicle-ihe-or-anywhere.html
 
 https://larrycuban.wordpress.com/2015/10/20/does-integrating-computers-into-lessons-mean-that-teaching-has-changed/
