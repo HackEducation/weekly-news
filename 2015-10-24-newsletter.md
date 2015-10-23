@@ -2,6 +2,20 @@
 
 https://www.insidehighered.com/blogs/college-ready-writing/dlrn15-%E2%80%93-story
 
+https://josheyler.wordpress.com/2015/10/20/active-learning-is-not-our-enemy-a-response-to-molly-worthen/
+
+http://musicfordeckchairs.com/blog/2015/10/22/listening/
+
+https://opendistanceteachingandlearning.wordpress.com/2015/10/22/designing-hope-some-ramblings-and-personal-reflections-on-icde2015/
+
+https://www.youtube.com/channel/UCxXT0fJbOvf-l0Y_THa5osg
+
+http://www.eater.com/2015/10/21/9522151/pan-galactic-gargle-blaster-recipes-geek-bars
+
+http://tressiemc.com/2015/10/21/open-and-accessible-to-what-and-for-whom-reflections-on-icde-2015/
+
+http://www.edcentral.org/exsitefail/
+
 http://www.nytimes.com/2015/10/18/opinion/sunday/lecture-me-really.html
 
 http://blog.edtechie.net/edtech/half-awake-in-our-fake-empire/
