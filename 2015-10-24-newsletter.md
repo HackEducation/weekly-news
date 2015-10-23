@@ -2,6 +2,8 @@
 
 https://www.insidehighered.com/blogs/college-ready-writing/dlrn15-%E2%80%93-story
 
+http://www.theatlantic.com/education/archive/2015/10/gi-bill-evolution/411928/
+
 https://josheyler.wordpress.com/2015/10/20/active-learning-is-not-our-enemy-a-response-to-molly-worthen/
 
 http://musicfordeckchairs.com/blog/2015/10/22/listening/
