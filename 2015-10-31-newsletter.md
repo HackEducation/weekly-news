@@ -1,5 +1,13 @@
 ## Hack Education Weekly Newsletter, No. 134
 
+http://mfeldstein.com/educause-and-robot-tutors-in-the-sky-when-investors-are-your-main-customers/
+
+http://clrjames.blogspot.com/2015/10/the-school-as-prison-no-pipeline.html
+
+http://www.theawl.com/2015/10/there-is-no-college-bubble
+
+http://www.newyorker.com/magazine/2015/11/02/the-rise-and-fall-of-for-profit-schools
+
 http://www.plannedobsolescence.net/academia-not-edu/
 
 http://mattbruenig.com/2015/10/26/welfare-schools-and-psychoanalyzing-education-reformers/
