@@ -1,5 +1,7 @@
 ## Hack Education Weekly Newsletter, No. 134
 
+http://edutechnica.com/2015/10/29/lms-data-snapshot-from-2010/
+
 http://mfeldstein.com/educause-and-robot-tutors-in-the-sky-when-investors-are-your-main-customers/
 
 http://clrjames.blogspot.com/2015/10/the-school-as-prison-no-pipeline.html
