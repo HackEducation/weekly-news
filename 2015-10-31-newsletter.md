@@ -1,5 +1,13 @@
 ## Hack Education Weekly Newsletter, No. 134
 
+http://chronicle.com/article/Meet-the-Man-Who-Wrote-the/233966/?key=FK2vlHZv8s8a-6wk334cR3J_GDje4Hi4ErtpN1AhXKBWa1ZJa1pWTXNyYjdySHIxejFONDk1TjNYU1VwVDZPaWFuX2tLM3ZRRGxV
+
+http://www.nytimes.com/2015/10/30/opinion/where-are-black-children-safe.html?_r=2
+
+http://davegilson.com/scarry.html
+
+http://bavatuesdays.com/the-indie-edtech-movement/
+
 http://edutechnica.com/2015/10/29/lms-data-snapshot-from-2010/
 
 http://mfeldstein.com/educause-and-robot-tutors-in-the-sky-when-investors-are-your-main-customers/
