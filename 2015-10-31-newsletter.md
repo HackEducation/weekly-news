@@ -2,6 +2,10 @@
 
 http://chronicle.com/article/Meet-the-Man-Who-Wrote-the/233966/?key=FK2vlHZv8s8a-6wk334cR3J_GDje4Hi4ErtpN1AhXKBWa1ZJa1pWTXNyYjdySHIxejFONDk1TjNYU1VwVDZPaWFuX2tLM3ZRRGxV
 
+http://priceonomics.com/the-invention-of-pad-thai/
+
+http://kottke.org/15/10/the-suckcom-origin-story
+
 http://www.nytimes.com/2015/10/30/opinion/where-are-black-children-safe.html?_r=2
 
 http://davegilson.com/scarry.html
