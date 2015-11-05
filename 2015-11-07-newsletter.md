@@ -1,5 +1,7 @@
 ## Hack Education Weekly Newsletter, No. 135
 
+http://nymag.com/following/2015/11/this-the-perfect-insane-anti-feminist-rumor.html
+
 http://www.npr.org/sections/ed/2015/11/02/445339503/from-book-strap-to-burrito-a-history-of-the-school-backpack
 
 http://www.versobooks.com/blogs/1879-new-babylon
