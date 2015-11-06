@@ -4,6 +4,14 @@ http://nymag.com/following/2015/11/this-the-perfect-insane-anti-feminist-rumor.h
 
 http://www.npr.org/sections/ed/2015/11/02/445339503/from-book-strap-to-burrito-a-history-of-the-school-backpack
 
+http://musicfordeckchairs.com/blog/2015/11/06/the-heart-of-it/
+
+http://www.theatlantic.com/technology/archive/2015/11/programmers-should-not-call-themselves-engineers/414271/
+
+http://www.newrepublic.com/article/123213/lol-nothing-matters-defense-internets-absence-meaning
+
+http://www.nytimes.com/2015/11/06/nytnow/no-hot-dogs-do-not-contain-human-meat.html?partner=rss&emc=rss&_r=0
+
 http://www.versobooks.com/blogs/1879-new-babylon
 
 http://thedisorderofthings.com/2015/11/03/accelerationism-without-accelerationism/
