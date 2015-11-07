@@ -2,6 +2,10 @@
 
 http://nymag.com/following/2015/11/this-the-perfect-insane-anti-feminist-rumor.html
 
+https://hapgoodflp.wordpress.com/2015/10/29/aleks-is-public-software/
+
+http://www.theatlantic.com/technology/archive/2015/11/the-food-delivery-start-up-you-havent-heard-of/414540/
+
 http://www.npr.org/sections/ed/2015/11/02/445339503/from-book-strap-to-burrito-a-history-of-the-school-backpack
 
 http://musicfordeckchairs.com/blog/2015/11/06/the-heart-of-it/
