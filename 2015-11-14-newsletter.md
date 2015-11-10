@@ -2,6 +2,14 @@
 
 http://techcrunch.com/2015/11/05/government-is-disrupting-bootcamps/
 
+http://boingboing.net/2015/11/10/gallery-of-the-soviet-unions.html
+
+http://boingboing.net/2015/11/10/after-40-years-sony-retires-b.html
+
+http://opencontent.org/blog/archives/4036
+
+http://www.atlasobscura.com/articles/the-forgotten-kaleidoscope-craze-in-victorian-england
+
 https://medium.com/matter/living-and-dying-on-airbnb-6bff8d600c04
 
 http://dougbelshaw.com/blog/2015/11/08/bright-future-badges/
