@@ -1,5 +1,11 @@
 ## Hack Education Weekly Newsletter, No. 136
 
+http://www.newyorker.com/news/news-desk/race-and-the-free-speech-diversion
+
+http://kottke.org/15/11/online-collection-of-digitized-wax-cylinder-recordings
+
+http://theoatmeal.com/comics/plane
+
 http://techcrunch.com/2015/11/05/government-is-disrupting-bootcamps/
 
 http://boingboing.net/2015/11/10/gallery-of-the-soviet-unions.html
