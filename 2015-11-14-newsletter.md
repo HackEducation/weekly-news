@@ -6,6 +6,8 @@ https://medium.com/@cogdog/timothy-boostrom-is-not-real-28a2f57c37f4
 
 http://fusion.net/story/231089/safe-space-history/
 
+https://www.washingtonpost.com/news/sports/wp/2015/11/10/mel-hamilton-member-of-wyoming-black-14-on-missouri-boycott-i-had-lost-faith-in-the-young-folks-up-until-now/
+
 https://lareviewofbooks.org/review/the-university-of-nowhere-the-false-promise-of-disruption/
 
 http://boingboing.net/2015/11/12/edward-snowdens-operational.html
