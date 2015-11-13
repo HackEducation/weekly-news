@@ -1,5 +1,21 @@
 ## Hack Education Weekly Newsletter, No. 136
 
+http://www.theatlantic.com/technology/archive/2015/11/kill-email-die-email/415419/
+
+https://medium.com/@cogdog/timothy-boostrom-is-not-real-28a2f57c37f4
+
+http://fusion.net/story/231089/safe-space-history/
+
+https://lareviewofbooks.org/review/the-university-of-nowhere-the-false-promise-of-disruption/
+
+http://boingboing.net/2015/11/12/edward-snowdens-operational.html
+
+http://www.theawl.com/2015/11/a-theory-of-technology
+
+http://motherboard.vice.com/read/what-the-emoji-youre-sending-actually-look-like-to-your-friends
+
+http://connect.clir.org/blogs/michael-edson/2015/11/12/hidden-collections-for-everyone
+
 http://www.newyorker.com/news/news-desk/race-and-the-free-speech-diversion
 
 http://www.newyorker.com/magazine/2015/11/16/politics-and-the-new-machine
