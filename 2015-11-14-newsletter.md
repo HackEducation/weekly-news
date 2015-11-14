@@ -2,6 +2,12 @@
 
 http://www.theatlantic.com/technology/archive/2015/11/kill-email-die-email/415419/
 
+http://gawker.com/maybe-the-college-kids-should-destroy-college-1741946658
+
+http://www.psmag.com/books-and-culture/that-plaid-tho
+
+http://www.salon.com/2015/11/08/they_want_kids_to_be_robots_meet_the_new_education_craze_designed_to_distract_you_from_overtesting/
+
 https://medium.com/@cogdog/timothy-boostrom-is-not-real-28a2f57c37f4
 
 http://fusion.net/story/231089/safe-space-history/
