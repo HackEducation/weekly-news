@@ -13,3 +13,5 @@ http://www.newyorker.com/magazine/2015/11/23/conversion-via-twitter-westboro-bap
 http://www.wired.com/2015/11/how-disney-is-making-sure-youll-never-be-able-to-escape-star-wars/
 
 http://thenewinquiry.com/blogs/zunguzungu/safe-space/
+
+http://slatestarcodex.com/2015/11/16/hardball-questions-for-the-next-debate/
