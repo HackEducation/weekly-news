@@ -15,3 +15,5 @@ http://www.wired.com/2015/11/how-disney-is-making-sure-youll-never-be-able-to-es
 http://thenewinquiry.com/blogs/zunguzungu/safe-space/
 
 http://slatestarcodex.com/2015/11/16/hardball-questions-for-the-next-debate/
+
+http://www.theatlantic.com/magazine/archive/2015/12/the-silicon-valley-suicides/413140/
