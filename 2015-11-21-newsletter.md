@@ -2,6 +2,8 @@
 
 http://www.theverge.com/2015/11/16/9724644/police-tech-body-cams-transparency-violence-taser
 
+http://www.theatlantic.com/technology/archive/2015/11/burgers-arent-broken/416727/
+
 http://opencontent.org/blog/archives/4064
 
 http://nymag.com/scienceofus/2015/11/myth-of-the-fragile-college-student.html
