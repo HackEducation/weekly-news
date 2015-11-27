@@ -2,6 +2,16 @@
 
 http://mentalfloss.com/article/71281/oral-history-30-years-ago-mr-snuffleupagus-shocked-sesame-street
 
+https://medium.com/@wakeupsilver/the-maker-movement-is-about-freedom-25ef8a323022#.ku9ft5h20
+
+http://motherboard.vice.com/read/dialed-up
+
+http://www.atlasobscura.com/articles/we-asked-an-ornithologist-to-factcheck-angry-birdsand-the-results-might-surprise-you
+
+http://laughingsquid.com/adele-joins-jimmy-fallon-the-roots-for-a-classroom-instrument-version-of-her-hit-song-hello/
+
+https://medium.com/message/the-politics-of-empathy-and-the-politics-technology-664437b6427#.dssp98py8
+
 http://i.imgur.com/kBorQya.jpg
 
 http://worrydream.com/ClimateChange/
