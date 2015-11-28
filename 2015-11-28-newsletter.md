@@ -2,6 +2,8 @@
 
 http://mentalfloss.com/article/71281/oral-history-30-years-ago-mr-snuffleupagus-shocked-sesame-street
 
+http://america.aljazeera.com/opinions/2015/11/its-time-to-retire-the-pc-police.html
+
 https://medium.com/@wakeupsilver/the-maker-movement-is-about-freedom-25ef8a323022#.ku9ft5h20
 
 http://motherboard.vice.com/read/dialed-up
