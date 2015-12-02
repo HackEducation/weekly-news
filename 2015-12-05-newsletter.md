@@ -9,3 +9,5 @@ http://juliebush.net/so-youve-decided-to-contact-me-a-guide.html
 https://www.washingtonpost.com/posteverything/wp/2015/11/30/four-tough-things-columnists-should-do-before-writing-about-universities/
 
 http://socialmediacollective.org/2015/11/30/public-intellectuals-2/
+
+http://www.theguardian.com/commentisfree/2015/nov/30/history-of-word-taser-comes-from-century-old-racist-science-fiction-novel
