@@ -11,3 +11,9 @@ https://www.washingtonpost.com/posteverything/wp/2015/11/30/four-tough-things-co
 http://socialmediacollective.org/2015/11/30/public-intellectuals-2/
 
 http://www.theguardian.com/commentisfree/2015/nov/30/history-of-word-taser-comes-from-century-old-racist-science-fiction-novel
+
+http://edutechnicalities.com/articles/youre-not-an-asshole-mark-zuckerberg-youre-just-wrong/
+
+http://sarahjeong.net/2015/12/02/top-six-things-mark-zuckerberg-should-do-with-45-billion-dollars/
+
+http://www.atlasobscura.com/articles/cs-lewis-greatest-fiction-convincing-american-kids-that-they-would-like-turkish-delight
