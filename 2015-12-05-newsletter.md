@@ -2,6 +2,8 @@
 
 http://www.theguardian.com/lifeandstyle/2015/nov/28/conversation-chris-hadfield-randall-munroe-interview
 
+Animal v Dave Grohl < Animal v Buddy Rich < Buddy Rich v Gene Krupa
+
 http://pressthink.org/2015/11/i-will-try-to-explain-why-the-trump-candidacy-has-been-so-confounding-to-our-political-press/
 
 http://www.bloomberg.com/features/2015-gravity-ceo-dan-price/
