@@ -2,6 +2,12 @@
 
 http://www.theguardian.com/lifeandstyle/2015/nov/28/conversation-chris-hadfield-randall-munroe-interview
 
+http://www.edtechresearcher.com/2015/12/some-advice-for-chan-zuckerberg-on-technology-and-equity/
+
+http://www.techinsider.io/gm-1956-self-driving-car-video-2015-10
+
+http://www.believermag.com/issues/201511/?read=article_sherman
+
 Animal v Dave Grohl < Animal v Buddy Rich < Buddy Rich v Gene Krupa
 
 http://pressthink.org/2015/11/i-will-try-to-explain-why-the-trump-candidacy-has-been-so-confounding-to-our-political-press/
