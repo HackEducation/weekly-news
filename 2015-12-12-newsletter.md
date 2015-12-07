@@ -5,3 +5,7 @@ http://www.aud.life/2015/the-week-in-robots-27
 http://www.washingtonpost.com/sf/national/2015/12/05/after-a-mass-shooting-a-survivors-life/
 
 https://newrepublic.com/article/124750/man-will-save-math
+
+http://jezebel.com/carrie-fisher-and-her-dog-gary-star-in-the-best-inter-1746424496
+
+http://www.nytimes.com/2015/12/07/nyregion/the-mathematicians-who-ended-the-kidnapping-of-an-nyu-computer.html
