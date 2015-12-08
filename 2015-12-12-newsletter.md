@@ -9,3 +9,11 @@ https://newrepublic.com/article/124750/man-will-save-math
 http://jezebel.com/carrie-fisher-and-her-dog-gary-star-in-the-best-inter-1746424496
 
 http://www.nytimes.com/2015/12/07/nyregion/the-mathematicians-who-ended-the-kidnapping-of-an-nyu-computer.html
+
+https://aeon.co/essays/what-if-historians-started-taking-the-what-if-seriously
+
+http://mfeldstein.com/plus-ca-change-about-that-ed-tech-adoption-curve/
+
+https://youtu.be/jAL1lVvJxew
+
+http://thebaffler.com/blog/interview-morozov-davies
