@@ -8,6 +8,14 @@ http://www.esquire.com/entertainment/music/news/a40276/prince-cover-radiohead-cr
 
 https://youtu.be/pAIwrdy4Y9g
 
+http://www.nytimes.com/2015/12/10/us/john-trudell-outspoken-advocate-for-american-indians-is-dead-at-69.html?_r=0
+
+https://youtu.be/FIxYCDbRGJc
+
+http://rolinmoe.org/2015/12/09/hourofteach-or-will-the-last-philanthrocapitalist-turn-out-the-lights/
+
+http://www.motherjones.com/politics/2015/12/muslim-kids-bullying-schools-teachers-islamophobia
+
 https://newrepublic.com/article/124750/man-will-save-math
 
 http://jezebel.com/carrie-fisher-and-her-dog-gary-star-in-the-best-inter-1746424496
