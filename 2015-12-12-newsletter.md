@@ -2,6 +2,18 @@
 
 http://www.aud.life/2015/the-week-in-robots-27
 
+http://blog.edtechie.net/mooc/2016-the-year-of-mooc-hard-questions/
+
+http://www.cjr.org/analysis/the_best_and_worst_journalism_of_2015.php
+
+https://nplusonemag.com/issue-24/the-intellectual-situation/after-capitalism/
+
+http://blog.archive.org/2015/12/10/educational-film-of-the-week-now-is-the-time-1967/
+
+http://www.theatlantic.com/politics/archive/2015/12/hope-and-the-historian/419961/
+
+https://lareviewofbooks.org/essay/dear-parents-everything-you-need-to-know-about-your-son-and-daughters-university-but-dont/
+
 http://www.washingtonpost.com/sf/national/2015/12/05/after-a-mass-shooting-a-survivors-life/
 
 http://www.esquire.com/entertainment/music/news/a40276/prince-cover-radiohead-creep/
