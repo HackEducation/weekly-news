@@ -2,6 +2,14 @@
 
 http://www.aud.life/2015/the-week-in-robots-27
 
+https://www.propublica.org/article/florida-school-tied-up-autistic-boy-44-times-in-2-months
+
+http://www.newyorker.com/business/currency/bizarre-saga-craig-wright-latest-inventor-bitcoin
+
+http://boingboing.net/2015/12/11/techno-social-engineering-is-f.html
+
+http://followersoftheapocalyp.se/9-things-to-watch-out-for-in-2015-redux/
+
 http://blog.edtechie.net/mooc/2016-the-year-of-mooc-hard-questions/
 
 http://www.cjr.org/analysis/the_best_and_worst_journalism_of_2015.php
