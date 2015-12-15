@@ -4,6 +4,12 @@ http://www.aud.life/2015/the-week-in-robots-28
 
 https://opendistanceteachingandlearning.wordpress.com/2015/12/14/algorithmic-decision-making-in-higher-education-there-be-dragons-there/
 
+https://www.americanprogress.org/issues/higher-education/report/2015/12/14/127200/hooked-on-accreditation-a-historical-perspective/
+
+http://rozworski.org/political-eh-conomy/2015/12/14/uber-and-the-luddites/
+
+http://fusion.net/story/243930/campus-rape-protest-peter-ludlow/
+
 https://newrepublic.com/article/125706/benedict-anderson-man-without-country
 
 http://www.theatlantic.com/technology/archive/2015/12/the-moral-failure-of-computer-science/420012/?single_page=true
