@@ -1,5 +1,9 @@
 ## Hack Education Weekly Newsletter, No. 141
 
+https://newrepublic.com/article/124476/dispossessed-land-dreams
+
+http://www.seanmichaelmorris.com/blog/2015/12/14/collegiality-as-pedagogy-a-response-to-ron-srigley
+
 http://www.aud.life/2015/the-week-in-robots-28
 
 https://opendistanceteachingandlearning.wordpress.com/2015/12/14/algorithmic-decision-making-in-higher-education-there-be-dragons-there/
