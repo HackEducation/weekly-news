@@ -2,6 +2,14 @@
 
 https://newrepublic.com/article/124476/dispossessed-land-dreams
 
+https://newrepublic.com/article/125843/black-protesters-reinvigorated-campus-activism
+
+http://america.aljazeera.com/opinions/2015/12/the-real-cultural-explanation-for-school-shootings1.html
+
+http://fredrikdeboer.com/2015/12/17/the-left-should-support-speech-rights-because-the-left-is-weak/
+
+https://www.propublica.org/article/false-rape-accusations-an-unbelievable-story
+
 http://www.seanmichaelmorris.com/blog/2015/12/14/collegiality-as-pedagogy-a-response-to-ron-srigley
 
 http://www.aud.life/2015/the-week-in-robots-28
