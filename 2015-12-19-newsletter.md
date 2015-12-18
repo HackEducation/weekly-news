@@ -4,6 +4,8 @@ http://lithub.com/men-explain-lolita-to-me/
 
 https://gerrycanavan.wordpress.com/2015/12/17/watching-the-force-awakens-as-the-father-of-a-three-and-a-half-year-old-girl-no-spoilers/
 
+http://www.rollingstone.com/culture/features/theres-no-college-p-c-crisis-in-defense-of-student-protesters-20151217
+
 http://www.themorningnews.org/article/2015-the-year-that-was-and-wasnt
 
 https://www.jacobinmag.com/2015/12/uber-sharing-economy-taskrabbit-silicon-valley-technology/
