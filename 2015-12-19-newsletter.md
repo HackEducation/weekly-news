@@ -6,6 +6,10 @@ https://gerrycanavan.wordpress.com/2015/12/17/watching-the-force-awakens-as-the-
 
 http://www.rollingstone.com/culture/features/theres-no-college-p-c-crisis-in-defense-of-student-protesters-20151217
 
+https://www.washingtonpost.com/news/the-intersect/wp/2015/12/18/an-insane-timeline-of-2015-in-tumblr-memes/
+
+http://blog.archive.org/2015/12/18/educational-film-of-the-week-reading-writing-and-reefer-1979/
+
 http://www.themorningnews.org/article/2015-the-year-that-was-and-wasnt
 
 https://www.jacobinmag.com/2015/12/uber-sharing-economy-taskrabbit-silicon-valley-technology/
