@@ -1,5 +1,7 @@
 ## Hack Education Weekly Newsletter, No. 142
 
+http://www.salon.com/2015/12/22/the_star_wars_fandom_menace_the_glaring_emotional_blind_spots_that_power_the_force_awakens/
+
 http://www.nytimes.com/2015/12/20/books/review/beyond-measure-rescuing-an-overscheduled-overtested-underestimated-generation.html
 
 http://techcrunch.com/2015/11/28/how-education-will-be-smarter-less-intrusive-and-able-to-respond-to-how-you-feel/
