@@ -2,6 +2,14 @@
 
 http://www.salon.com/2015/12/22/the_star_wars_fandom_menace_the_glaring_emotional_blind_spots_that_power_the_force_awakens/
 
+http://studentactivism.net/2015/12/22/are-todays-student-activists-illiberal/
+
+http://kottke.org/15/12/i-will-never-do-anything-muppety
+
+https://medium.com/matter/heres-why-public-wifi-is-a-public-health-hazard-dd5b8dcb55e6#.56lrpal2u
+
+http://educationoutrage.blogspot.com/2015/12/corporate-training-needs-to-re-think.html
+
 http://www.nytimes.com/2015/12/20/books/review/beyond-measure-rescuing-an-overscheduled-overtested-underestimated-generation.html
 
 http://techcrunch.com/2015/11/28/how-education-will-be-smarter-less-intrusive-and-able-to-respond-to-how-you-feel/
