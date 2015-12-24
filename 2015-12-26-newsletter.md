@@ -2,6 +2,14 @@
 
 http://www.salon.com/2015/12/22/the_star_wars_fandom_menace_the_glaring_emotional_blind_spots_that_power_the_force_awakens/
 
+http://www.digitalcounterrevolution.co.uk/2015/radical-digital-connectivity-myth/
+
+http://boingboing.net/2015/12/23/the-medieval-origins-of-mass-s.html
+
+http://www.thismess.net/2015/12/restraint-for-safety-vs-restraint-for.html
+
+http://bryanalexander.org/2015/12/23/trends-to-watch-in-2016-education-contexts/
+
 http://studentactivism.net/2015/12/22/are-todays-student-activists-illiberal/
 
 http://kottke.org/15/12/i-will-never-do-anything-muppety
