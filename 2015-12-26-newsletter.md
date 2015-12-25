@@ -35,3 +35,5 @@ http://blog.ayjay.org/reverting-to-type/
 http://blog.stephenwolfram.com/2015/12/untangling-the-tale-of-ada-lovelace/
 
 https://medium.com/backchannel/silicon-valley-s-basic-income-bromance-97595cd35d5d#.3f31wj759
+
+http://bryanalexander.org/2015/12/25/trends-to-watch-in-2016-technologies/ (as well as Bryan's post on education in 2016)
