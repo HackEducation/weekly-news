@@ -1,6 +1,12 @@
 ## The History of the Future of Education Newsletter
 (No. 143)
 
+http://bryanalexander.org/2015/12/29/trends-to-watch-in-2015-education-and-technology/
+
+http://fusion.net/story/248866/public-school-segregation-inequality/
+
+http://www.theverge.com/2015/12/29/10642070/2015-theranos-venture-capital-tech-bubble-disruption
+
 http://www.aud.life/2015/the-week-in-robots-30
 
 https://larrycuban.wordpress.com/2015/12/27/predictions-dumb-and-otherwise-about-technology-in-schools-in-2025/
