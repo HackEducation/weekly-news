@@ -1,6 +1,10 @@
 ## The History of the Future of Education Newsletter
 (No. 143)
 
+http://www.newyorker.com/tech/elements/in-silicon-valley-now-its-almost-always-winner-takes-all
+
+http://thenewinquiry.com/blogs/zunguzungu/our-star-wars-holiday-special/
+
 http://bryanalexander.org/2015/12/29/trends-to-watch-in-2015-education-and-technology/
 
 http://fusion.net/story/248866/public-school-segregation-inequality/
