@@ -1,6 +1,16 @@
 ## The History of the Future of Education Newsletter
 (No. 143)
 
+http://hapgood.us/2015/12/31/an-idle-thought-on-differential-identity/
+
+http://www.eater.com/2015/12/31/10690384/hangover-cure-history
+
+http://www.nytimes.com/2016/01/03/opinion/sunday/the-selfish-side-of-gratitude.html
+
+http://www.theawl.com/2015/12/lost-soles
+
+http://theory.cribchronicles.com/2015/12/31/what-your-new-years-facebook-posts-really-mean/
+
 http://www.newyorker.com/tech/elements/in-silicon-valley-now-its-almost-always-winner-takes-all
 
 http://thenewinquiry.com/blogs/zunguzungu/our-star-wars-holiday-special/
