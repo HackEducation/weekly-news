@@ -1,6 +1,10 @@
 ## The History of the Future of Education Newsletter
 (No. 143)
 
+http://blog.mrmeyer.com/2016/im-gonna-use-my-formula-sheets-and-thats-the-only-way-im-gonna-do-stuff/
+
+http://www.nytimes.com/2016/01/03/opinion/why-the-post-office-makes-america-great.html
+
 http://hapgood.us/2015/12/31/an-idle-thought-on-differential-identity/
 
 http://www.eater.com/2015/12/31/10690384/hangover-cure-history
