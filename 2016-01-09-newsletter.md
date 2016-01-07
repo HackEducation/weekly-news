@@ -11,3 +11,5 @@ https://chroniclevitae.com/news/1235-a-lecture-from-the-lectured
 http://bavatuesdays.com/personal-apis-and-academic-libraries/
 
 http://www.dancohen.org/2016/01/04/for-what-its-worth-a-review-of-the-wu-tang-clans-once-upon-a-time-in-shaolin/
+
+http://www.windley.com//archives/2015/12/promises_and_communities_of_things.shtml
