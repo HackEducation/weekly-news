@@ -15,3 +15,7 @@ http://www.theatlantic.com/business/archive/2016/01/powerball-math/423558/
 https://thebillfold.com/if-you-don-t-at-least-try-your-local-school-you-may-be-part-of-the-problem-a53950caad3#.44zovb6rz
 
 http://www.theguardian.com/technology/2016/jan/11/david-bowie-bowienet-isp-internet
+
+http://www.theatlantic.com/politics/archive/2016/01/bill-cosby-and-his-enablers/422448/
+
+http://hapgood.us/2016/01/12/the-recommenders-paradox/
