@@ -2,6 +2,8 @@
 
 http://www.aud.life/2016/the-week-in-robots-32
 
+http://www.theverge.com/2016/1/13/10758380/stingray-surveillance-device-daniel-rigmaiden-case
+
 http://www.tonybates.ca/2016/01/11/automation-or-empowerment-online-learning-at-the-crossroads/
 
 http://fathom.info/macrecipes/
