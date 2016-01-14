@@ -2,6 +2,10 @@
 
 http://www.aud.life/2016/the-week-in-robots-32
 
+https://larrycuban.wordpress.com/2016/01/11/a-zombie-reform-outcome-based-education-obe-in-medical-education-and-k-12-schools/
+
+http://techcrunch.com/2016/01/09/how-startups-are-solving-a-decades-old-problem-in-education/#.qeewcdh:Xvti
+
 http://www.theverge.com/2016/1/13/10758380/stingray-surveillance-device-daniel-rigmaiden-case
 
 http://www.tonybates.ca/2016/01/11/automation-or-empowerment-online-learning-at-the-crossroads/
