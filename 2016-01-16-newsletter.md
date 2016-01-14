@@ -4,6 +4,12 @@ http://www.aud.life/2016/the-week-in-robots-32
 
 http://www.tonybates.ca/2016/01/11/automation-or-empowerment-online-learning-at-the-crossroads/
 
+http://fathom.info/macrecipes/
+
+http://er.educause.edu/articles/2016/1/networked-learning-as-experiential-learning
+
+http://www.theatlantic.com/education/archive/2016/01/the-rise-of-englands-charter-schools/423984/
+
 http://blogs.edweek.org/teachers/intersection-culture-and-race-in-education/2016/01/two-kinds-teachers-focused-on-compliance-vs-relationships.html
 
 https://lareviewofbooks.org/review/pedagogy-with-a-hammer-on-the-use-and-abuse-of-nietzsche-for-a-neoliberal-era/
