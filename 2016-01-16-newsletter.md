@@ -6,6 +6,8 @@ http://mfeldstein.com/ed-tech-patent-update-the-innovators-agreement/
 
 http://mfeldstein.com/solving-ed-tech-patent-problem/
 
+https://news.vice.com/article/heres-what-happens-to-the-billions-of-powerball-dollars-that-nobody-wins
+
 http://dailyimprovisation.blogspot.com/2016/01/is-e-learning-really-academic.html
 
 http://ngm.nationalgeographic.com/2016/02/evolution-of-eyes-text
