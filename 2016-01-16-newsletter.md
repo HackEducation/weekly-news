@@ -2,6 +2,14 @@
 
 http://www.aud.life/2016/the-week-in-robots-32
 
+http://mfeldstein.com/ed-tech-patent-update-the-innovators-agreement/
+
+http://mfeldstein.com/solving-ed-tech-patent-problem/
+
+http://dailyimprovisation.blogspot.com/2016/01/is-e-learning-really-academic.html
+
+http://ngm.nationalgeographic.com/2016/02/evolution-of-eyes-text
+
 https://larrycuban.wordpress.com/2016/01/11/a-zombie-reform-outcome-based-education-obe-in-medical-education-and-k-12-schools/
 
 http://techcrunch.com/2016/01/09/how-startups-are-solving-a-decades-old-problem-in-education/#.qeewcdh:Xvti
