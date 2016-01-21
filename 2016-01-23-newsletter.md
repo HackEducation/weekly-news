@@ -2,6 +2,20 @@
 
 (apologize for missed newsletter)
 
+http://www.technologyreview.com/news/545786/the-world-is-more-unequal-than-ever-is-that-because-of-technology/
+
+http://bryanalexander.org/2016/01/18/the-new-age-of-inequality-and-what-it-means-for-education-my-january-talk/
+
+http://musicfordeckchairs.com/blog/2016/01/15/top-talent/
+
+https://medium.com/@octskyward/the-resolution-of-the-bitcoin-experiment-dabb30201f7#.bioc9gebe
+
+http://prospect.org/article/new-inequality-debate-0
+
+http://chronicle.com/blogs/profhacker/e-portfolios-are-not-the-fitbit-of-higher-education/61517
+
+http://mfeldstein.com/patents-rethought-khan-academy-did-the-right-thing/
+
 http://www.aud.life/2016/the-week-in-robots-32
 
 http://mfeldstein.com/ed-tech-patent-update-the-innovators-agreement/
