@@ -2,6 +2,10 @@
 
 (apologize for missed newsletter)
 
+http://hapgood.us/2016/01/21/the-future-of-privacy-is-on-the-client/
+
+http://www.tonybates.ca/2016/01/17/celebrating-the-30th-anniversary-of-the-first-fully-online-course/
+
 http://www.technologyreview.com/news/545786/the-world-is-more-unequal-than-ever-is-that-because-of-technology/
 
 http://bryanalexander.org/2016/01/18/the-new-age-of-inequality-and-what-it-means-for-education-my-january-talk/
