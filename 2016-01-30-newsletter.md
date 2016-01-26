@@ -12,3 +12,14 @@ https://www.timeshighereducation.com/features/what-should-we-be-teaching-the-nex
 
 http://adamcroom.com/2016/01/blockchains-for-federated-student-data/
 
+http://www.digitalpedagogylab.com/hybridped/long-will-class-remain-academic-freedom-control-classroom/
+
+https://points.datasociety.net/what-world-are-we-building-9978495dd9ad#.tuxrdswnk
+
+http://jakubkabala.com/uncategorized/the-davidson-college-yik-yak-mood-lamp/
+
+https://medium.com/bright/the-classroom-is-dead-18986bcf5fb0#.rulqouih2
+
+http://www.theguardian.com/commentisfree/2016/jan/24/blockchain-bitcoin-technology-most-important-tech-invention-of-our-age-sir-mark-walport
+
+http://thenewinquiry.com/essays/fear-of-screens/
