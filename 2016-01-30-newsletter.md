@@ -1,5 +1,9 @@
 ## Hack Education Weekly Newsletter, No. 146
 
+http://www.theatlantic.com/education/archive/2016/01/what-classrooms-can-learn-from-magic/425100/
+
+https://medium.com/education-voodoo/disruption-and-agency-inherent-freedoms-impatient-earthworms-and-schemas-of-the-ideal-society-e19ddcc02a26#.hld9hu8do
+
 http://elpais.com/elpais/2016/01/19/inenglish/1453208692_424660.html
 
 http://followersoftheapocalyp.se/scholarly-debt-and-deficit/
