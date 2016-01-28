@@ -2,6 +2,20 @@
 
 http://www.theatlantic.com/education/archive/2016/01/what-classrooms-can-learn-from-magic/425100/
 
+http://tressiemc.com/2016/01/28/the-limits-of-education-reform-a-road-paved-with-the-best-intentions/
+
+http://blog.edtechie.net/edtech/the-alchemy-of-ed-tech/
+
+http://boingboing.net/2016/01/28/anaheim-the-happiest-surveill.html
+
+http://www.vox.com/2016/1/27/10835038/amazon-higher-education
+
+http://www.theawl.com/2016/01/an-income-for-basics
+
+http://www.patrickmccray.com/2016/01/27/a-mountain-of-magical-thinking/
+
+https://www.insidehighered.com/blogs/library-babel-fish/value-unpredictable
+
 https://medium.com/education-voodoo/disruption-and-agency-inherent-freedoms-impatient-earthworms-and-schemas-of-the-ideal-society-e19ddcc02a26#.hld9hu8do
 
 http://elpais.com/elpais/2016/01/19/inenglish/1453208692_424660.html
