@@ -8,6 +8,8 @@ https://medium.com/identity-education-and-power/the-answers-the-questions-and-pr
 
 http://www.briancroxall.net/2016/01/28/assignments-and-architecture-pedagogy-in-the-digital-age/
 
+http://www.theatlantic.com/education/archive/2016/01/the-man-who-tried-to-kill-math-in-america/429231/
+
 http://exittheapple.com/a-few-rules-for-predicting-the-future/
 
 http://motherboard.vice.com/read/the-end-of-big-data
