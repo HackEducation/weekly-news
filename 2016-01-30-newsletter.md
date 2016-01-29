@@ -2,6 +2,18 @@
 
 http://www.theatlantic.com/education/archive/2016/01/what-classrooms-can-learn-from-magic/425100/
 
+http://suburbdad.blogspot.com/2016/01/save-bunnies-response-to-rebecca-schuman.html
+
+https://medium.com/identity-education-and-power/the-answers-the-questions-and-practical-significance-fe6d1e1e77df#.qtqbxloia
+
+http://www.briancroxall.net/2016/01/28/assignments-and-architecture-pedagogy-in-the-digital-age/
+
+http://exittheapple.com/a-few-rules-for-predicting-the-future/
+
+http://motherboard.vice.com/read/the-end-of-big-data
+
+http://dmlcentral.net/boundaries-data-collection/#.VqosWGb0t64.twitter
+
 http://tressiemc.com/2016/01/28/the-limits-of-education-reform-a-road-paved-with-the-best-intentions/
 
 http://blog.edtechie.net/edtech/the-alchemy-of-ed-tech/
