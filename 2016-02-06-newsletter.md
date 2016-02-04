@@ -1,5 +1,13 @@
 ## Hack Education Weekly Newsletter, No. 147
 
+http://blogs.swarthmore.edu/burke/blog/2016/02/04/on-uagadou-the-african-wizarding-school/
+
+http://alex-reid.net/2016/02/brain-to-brain-communication-and-the-new-materiality-of-thought.html
+
+http://www.bloomberg.com/news/articles/2016-02-03/from-coal-to-coding-appalachian-miners-getting-a-fresh-start
+
+http://elisechenier.com/2016/02/03/when-your-institution-treats-you-like-a-sex-object/
+
 http://chronicle.com/article/1974-Ferpas-Birth-Puts/235110
 
 http://www.theguardian.com/commentisfree/2016/jan/31/cheap-cab-ride-uber-true-cost-google-wealth-taxation
