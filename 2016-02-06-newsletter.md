@@ -1,5 +1,13 @@
 ## Hack Education Weekly Newsletter, No. 147
 
+http://gawker.com/bustle-and-the-industrialization-of-confession-1756970533
+
+http://america.aljazeera.com/opinions/2016/2/every-student-cant-succeed.html
+
+https://newrepublic.com/article/129176/cant-kill-twitter-even-dies
+
+http://blog.mrmeyer.com/2016/the-future-of-handwriting-recognition-adaptive-feedback-in-math-education/
+
 http://blogs.swarthmore.edu/burke/blog/2016/02/04/on-uagadou-the-african-wizarding-school/
 
 http://alex-reid.net/2016/02/brain-to-brain-communication-and-the-new-materiality-of-thought.html
