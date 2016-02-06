@@ -1,5 +1,11 @@
 ## Hack Education Weekly Newsletter, No. 147
 
+http://www.buzzfeed.com/alexkantrowitz/twitter-to-introduce-algorithmic-timeline-as-soon-as-next-we?bftw&utm_term=.iw1o7xg4Y#.gcxxeWmzL
+
+https://sports.vice.com/en_us/article/the-house-that-built-cam
+
+http://opencontent.org/blog/archives/4430
+
 http://gawker.com/bustle-and-the-industrialization-of-confession-1756970533
 
 http://america.aljazeera.com/opinions/2016/2/every-student-cant-succeed.html
