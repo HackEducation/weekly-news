@@ -13,3 +13,11 @@ http://davecormier.com/edblog/2016/02/07/marc-rubio-rote-learning-and-getting-th
 https://blog.mozilla.org/blog/2016/02/08/the-internet-is-a-global-public-resource/
 
 https://points.datasociety.net/it-s-not-cyberspace-anymore-55c659025e97#.3fx411ceo
+
+https://twitter.com/juliacarriew/status/697267489315508226/photo/1
+
+http://www.miaminewtimes.com/music/michael-jacksons-pet-chimp-bubbles-is-living-out-his-twilight-years-in-florida-8219542
+
+http://www.buzzfeed.com/benrosen/how-to-snapchat-like-the-teens#.okqvmYRqp
+
+http://www.slate.com/articles/technology/future_tense/2016/02/how_to_bring_better_ethics_to_data_science.html?wpsrc=sh_all_dt_tw_top
