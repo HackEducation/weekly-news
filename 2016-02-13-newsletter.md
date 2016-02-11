@@ -6,6 +6,22 @@ https://www.insidehighered.com/blogs/just-visiting/when-they-promise-netflix-edu
 
 https://funnymonkey.com/2016/the-privacy-divide
 
+http://motherboard.vice.com/read/brain-trust
+
+http://freakonomics.com/podcast/who-needs-handwriting/
+
+http://dmlcentral.net/the-possibilities-of-badges-and-blockchain/
+
+http://www.nature.com/news/the-chips-are-down-for-moore-s-law-1.19338
+
+https://twitter.com/joinRAD/status/697248709940269056
+
+https://medium.com/@sumanthr/a-data-driven-argument-on-why-marc-andreessen-is-wrong-about-free-basics-c472184b9682#.smr0ye3ar
+
+http://www.theguardian.com/technology/2016/feb/10/facebook-investor-marc-andreessen-apology-offensive-india-tweet-net-neutrality-free-basics
+
+http://moreorlessbunk.net/technology/online-courses/this-is-how-it-feels-to-use-blackboard-for-the-first-time/
+
 https://www.edsurge.com/news/2016-02-07-is-the-educational-games-industry-falling-into-the-same-trap-it-did-20-years-ago
 
 http://davecormier.com/edblog/2016/02/07/marc-rubio-rote-learning-and-getting-the-answer-right/
