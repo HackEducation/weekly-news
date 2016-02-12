@@ -1,5 +1,15 @@
 ## Hack Education Weekly Newsletter, No. 148
 
+http://www.theatlantic.com/technology/archive/2016/02/facebook-and-the-new-colonialism/462393/
+
+https://medium.com/@jkriss/anti-capitalist-human-scale-software-and-why-it-matters-5936a372b9d#.uqf84iez1
+
+https://backchannel.com/our-medical-data-must-become-free-f6d533db6bed#.x5dg9f5b6
+
+http://www.politico.com/story/2016/02/bernie-sanders-jane-vermont-burlington-college-219114
+
+http://motherboard.vice.com/read/brain-trust
+
 http://www.katelosse.tv/latest/2016/2/6/twitter-and-the-limits-of-arrogance
 
 https://www.insidehighered.com/blogs/just-visiting/when-they-promise-netflix-education-cover-your-wallet
