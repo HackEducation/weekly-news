@@ -5,3 +5,7 @@ https://medium.com/@vkhosla/is-majoring-in-liberal-arts-a-mistake-for-students-f
 http://www.wired.com/2016/02/music-cant-last-forever-not-even-on-the-internet/ (http://hapgood.us/2016/02/13/soundcloud-and-connected-copies/)
 
 http://chronicle.com/article/1976-Computers-in-the/235301
+
+http://www.eater.com/2016/2/16/11002842/free-breakfast-schools-black-panthers
+
+http://hapgood.us/2016/02/15/connected-copies-part-one/
