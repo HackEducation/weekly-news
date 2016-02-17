@@ -9,3 +9,17 @@ http://chronicle.com/article/1976-Computers-in-the/235301
 http://www.eater.com/2016/2/16/11002842/free-breakfast-schools-black-panthers
 
 http://hapgood.us/2016/02/15/connected-copies-part-one/
+
+https://newrepublic.com/article/129002/secret-lives-tumblr-teens
+
+http://qz.com/613574/beware-of-the-angry-white-male-public-intellectual/
+
+http://www.newyorker.com/magazine/2016/02/22/inside-harvey-levins-tmz
+
+http://boingboing.net/2016/02/16/what-would-it-be-like-if-we-al.html
+
+https://www.insidehighered.com/blogs/just-visiting/students-arent-coddled-theyre-defeated
+
+http://arstechnica.co.uk/security/2016/02/the-nsas-skynet-program-may-be-killing-thousands-of-innocent-people/
+
+http://tinyletter.com/ElectronicInterestingness/letters/the-future-of-virtual-reality
