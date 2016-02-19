@@ -2,6 +2,8 @@
 
 https://medium.com/@vkhosla/is-majoring-in-liberal-arts-a-mistake-for-students-fd9d20c8532e#.pxwhjoea1
 
+http://hapgood.us/2016/02/18/why-learning-cant-be-like-a-video-game/
+
 https://newrepublic.com/article/129026/amazons-data-speak-itself
 
 http://hapgood.us/2016/02/17/connected-copies-part-two/
