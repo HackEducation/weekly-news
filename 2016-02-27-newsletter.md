@@ -15,3 +15,9 @@ http://www.suigeneris.li/
 http://www.theatlantic.com/technology/archive/2016/02/bonkers-zuckerberg/470400/
 
 https://merylalper.com/2016/02/22/please-read-the-article-please-cite-women-academics/
+
+http://www.atlasobscura.com/places/the-tree-goats-of-morocco/
+
+http://blogs.swarthmore.edu/burke/blog/2016/02/23/opt-out/
+
+http://www.eater.com/2016/2/23/11093906/happy-meal-toys-mcdonalds
