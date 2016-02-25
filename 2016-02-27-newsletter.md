@@ -4,6 +4,8 @@ http://thebaffler.com/blog/paul-mason-fukuyama-lehmann
 
 http://hapgood.us/2016/02/22/can-blogs-and-wiki-be-merged/
 
+http://america.aljazeera.com/opinions/2016/2/purge-the-new-york-times-op-ed-page.html
+
 http://mfeldstein.com/dear-blackboard-i-am-confused/
 
 http://blog.edtechie.net/higher-ed/the-non-uberization-of-education/
