@@ -2,6 +2,12 @@
 
 http://www.nytimes.com/2016/02/28/nyregion/new-york-teacher-gets-wise-at-a-hard-knocks-school.html
 
+http://blog.edtechie.net/uncategorized/positive-openness/
+
+https://timklapdor.wordpress.com/2016/03/01/provocations-on-the-personal-api/
+
+http://www.newyorker.com/magazine/2016/03/07/altschools-disrupted-education
+
 http://fusion.net/story/273852/why-millennials-arent-immune-to-right-wing-populism/
 
 http://laughingsquid.com/the-verge-explores-20-years-of-pokemon-video-games-and-explain-how-they-took-the-world-by-storm/
