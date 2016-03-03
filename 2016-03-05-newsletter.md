@@ -2,6 +2,22 @@
 
 http://www.nytimes.com/2016/02/28/nyregion/new-york-teacher-gets-wise-at-a-hard-knocks-school.html
 
+https://medium.com/swlh/will-this-be-on-the-test-237ae9cc53b4#.o8curzrqb
+
+http://blog.edtechie.net/openness/openness-as-feature/
+
+http://www.edukwest.com/uberfication-of-education/
+
+https://lareviewofbooks.org/interview/the-digital-in-the-humanities-an-interview-with-franco-moretti
+
+http://www.roughtype.com/?p=6770
+
+http://www.theatlantic.com/business/archive/2016/03/how-trackers-make-leisure-like-work/471864/
+
+http://fusion.net/video/256864/real-future-episode-9-cryonics/
+
+http://willrichardson.com/post/140338223225/stop-innovating-in-schools-please
+
 http://blog.edtechie.net/uncategorized/positive-openness/
 
 https://timklapdor.wordpress.com/2016/03/01/provocations-on-the-personal-api/
