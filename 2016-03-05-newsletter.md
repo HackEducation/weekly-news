@@ -2,6 +2,20 @@
 
 http://www.nytimes.com/2016/02/28/nyregion/new-york-teacher-gets-wise-at-a-hard-knocks-school.html
 
+http://www.theverge.com/2016/3/2/11146584/bitcoin-core-classic-debate-transaction-limit-crisis
+
+https://medium.com/badge-chain/avoiding-pointless-open-badges-related-blockchain-projects-64fb3ddc240c#.s6syv9lei
+
+http://www.alternet.org/education/netflix-billionaire-reed-hastings-crusade-replace-public-school-teachers-computers
+
+https://www.technologyreview.com/s/600941/bitcoin-transactions-get-stranded-as-cryptocurrency-maxes-out/
+
+http://www.theawl.com/2016/03/an-education-in-trumping
+
+https://twitter.com/rmoejo/status/705770785277751297
+
+http://www.veletsianos.com/2016/03/03/the-claims-of-edtech-supposedly-backed-by-research/
+
 https://medium.com/swlh/will-this-be-on-the-test-237ae9cc53b4#.o8curzrqb
 
 http://blog.edtechie.net/openness/openness-as-feature/
