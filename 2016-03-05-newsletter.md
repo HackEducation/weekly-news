@@ -2,6 +2,12 @@
 
 http://www.nytimes.com/2016/02/28/nyregion/new-york-teacher-gets-wise-at-a-hard-knocks-school.html
 
+http://thinkprogress.org/politics/2016/03/04/3756135/trump-steaks-a-definitive-history/
+
+http://fivethirtyeight.com/features/a-plagiarism-scandal-is-unfolding-in-the-crossword-world/
+
+http://coreyrobin.com/2016/03/04/trump-talk/
+
 http://www.theverge.com/2016/3/2/11146584/bitcoin-core-classic-debate-transaction-limit-crisis
 
 https://medium.com/badge-chain/avoiding-pointless-open-badges-related-blockchain-projects-64fb3ddc240c#.s6syv9lei
