@@ -3,7 +3,7 @@ markdown: kramdown
 highlighter: rouge
 
 # Site settings
-title: "Weekly Newsletter"
+title: "Newsletters"
 description: > # this means to ignore newlines until "email:"
    A Hack Education Project
 
