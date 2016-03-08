@@ -8,9 +8,21 @@ http://dailyimprovisation.blogspot.com/2016/03/searles-status-functions-and.html
 
 https://theouttake.net/tv-professors-and-the-higher-ed-apocalypse-581ef3cfa043#.nb4rrqbi6
 
+http://paleofuture.gizmodo.com/the-defense-department-got-mad-at-darpa-for-creating-em-1763274070
+
 https://blog.bitpay.com/jm-bullion-now-accepts-bitcoin-payments/
 
 http://followersoftheapocalyp.se/the-chain/
+
+http://fredrikdeboer.com/2016/03/07/what-thomas-hardy-taught-me/
+
+http://www.atlasobscura.com/articles/the-1980s-media-panic-over-dungeons-dragons
+
+http://dailyimprovisation.blogspot.com/2016/03/the-cybernetics-of-learning-in-stafford.html
+
+http://educationoutrage.blogspot.com/2016/03/a-look-at-trump-university-course-we.html
+
+http://jadedid.com/performingthedigital/2016/03/07/race-and-amputation-beginning-of-my-virtual-reality-vr-theoretical-stake-ver01/
 
 http://www.6floors.org/bracket/2016/03/07/returning-women-to-the-history-of-digital-history/
 
