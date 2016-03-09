@@ -2,6 +2,8 @@
 
 https://modelviewculture.com/pieces/crowdsourcing-open-data-and-precarious-labour
 
+http://motherboard.vice.com/read/bitcoin-blockchain-summit-with-richard-branson-on-necker-island
+
 http://hapgood.us/2016/03/08/trump-universitys-online-materials-are-a-lot-better-than-your-universitys-online-materials/
 
 http://blog.longreads.com/2016/03/08/your-phone-was-made-by-slaves-a-primer-on-the-secret-economy/
