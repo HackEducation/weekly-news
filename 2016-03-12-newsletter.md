@@ -1,5 +1,21 @@
 ## Hack Education Weekly Newsletter, No. 152
 
+https://modelviewculture.com/pieces/crowdsourcing-open-data-and-precarious-labour
+
+http://hapgood.us/2016/03/08/trump-universitys-online-materials-are-a-lot-better-than-your-universitys-online-materials/
+
+http://blog.longreads.com/2016/03/08/your-phone-was-made-by-slaves-a-primer-on-the-secret-economy/
+
+http://www.thenation.com/article/universities-are-becoming-billion-dollar-hedge-funds-with-schools-attached/
+
+https://www.dissentmagazine.org/article/innovation-for-what-the-politics-of-inequality-in-higher-education
+
+http://www.faz.net/aktuell/feuilleton/debatten/the-digital-debate/shoshana-zuboff-secrets-of-surveillance-capitalism-14103616-p2.html
+
+http://boingboing.net/2016/03/08/covert-scan-of-museums-nefer.html
+
+http://www.flashforwardpod.com/2016/03/08/episode-06-my-everything-pal/
+
 http://www.nytimes.com/2016/03/06/arts/music/bob-dylans-secret-archive.html
 
 http://rainystreets.wikity.cc/thoughts-for-the-compiler/
