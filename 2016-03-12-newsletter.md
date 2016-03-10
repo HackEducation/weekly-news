@@ -2,6 +2,16 @@
 
 https://modelviewculture.com/pieces/crowdsourcing-open-data-and-precarious-labour
 
+http://www.vanityfair.com/news/2016/03/silicon-valleys-exodus-begins
+
+https://www.hastac.org/blogs/cathy-davidson/2016/03/09/time-and-modern-university-prospectus
+
+http://news.nationalgeographic.com/2016/03/160309-synesthesia-fisher-price-refrigerator-magnet-letters/
+
+http://www.roughtype.com/?p=6810
+
+http://www.theatlantic.com/education/archive/2016/03/campus-carry-anxiety-age/472920/
+
 http://motherboard.vice.com/read/bitcoin-blockchain-summit-with-richard-branson-on-necker-island
 
 http://hapgood.us/2016/03/08/trump-universitys-online-materials-are-a-lot-better-than-your-universitys-online-materials/
