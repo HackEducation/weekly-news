@@ -1,5 +1,19 @@
 ## Hack Education Weekly Newsletter, No. 152
 
+http://iasc-culture.org/THR/channels/THR/2013/12/is-the-distracted-life-worth-living/
+
+https://medium.com/phase-change/three-short-futures-on-children-data-and-the-internet-of-things-300a14c80519#.wo497fhin
+
+http://boundary2.org/2016/03/09/wikipedia-woman-problem/
+
+http://dmlcentral.net/classdojo-measurement-management-growth-mindsets/
+
+http://www.buzzfeed.com/annehelenpetersen/hard-target#.ypXRg7aWN
+
+http://www.cjr.org/analysis/facebook_and_media.php
+
+https://allmoocs.wordpress.com/2016/03/10/donald-trump-invented-the-mooc/
+
 https://modelviewculture.com/pieces/crowdsourcing-open-data-and-precarious-labour
 
 http://www.vanityfair.com/news/2016/03/silicon-valleys-exodus-begins
