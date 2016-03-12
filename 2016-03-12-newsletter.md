@@ -2,6 +2,18 @@
 
 http://iasc-culture.org/THR/channels/THR/2013/12/is-the-distracted-life-worth-living/
 
+http://www.wired.com/2016/03/biometrics-coming-along-serious-security-concerns/
+
+https://newrepublic.com/article/131409/beyond-good-evil
+
+http://www.theawl.com/2016/03/a-history-of-future-foodstuffs
+
+http://www.bbc.com/news/technology-34474883
+
+http://www.bloomberg.com/news/articles/2016-03-10/what-happens-when-the-surveillance-state-becomes-an-affordable-gadget
+
+http://bavatuesdays.com/networked-learning-2016-hot-seat-clouds-containers-and-apis-oh-my/
+
 https://medium.com/phase-change/three-short-futures-on-children-data-and-the-internet-of-things-300a14c80519#.wo497fhin
 
 http://boundary2.org/2016/03/09/wikipedia-woman-problem/
