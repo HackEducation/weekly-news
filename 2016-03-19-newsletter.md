@@ -14,8 +14,8 @@ https://modelviewculture.com/pieces/coding-bootcamps-and-emotional-labor
 
 http://miriamposner.com/blog/money-and-time/
 
+http://well.blogs.nytimes.com/2016/03/08/dont-post-about-me-on-social-media-children-say/
+
 http://www.nytimes.com/2016/03/13/fashion/facebook-breakup-compassion-team.html
 
 http://www.vox.com/2015/8/25/9200801/wingdings-font-history
-
-
