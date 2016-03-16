@@ -1,5 +1,15 @@
 ## Hack Education Weekly Newsletter, No. 153
 
+http://www.wired.com/2016/03/crowdfunding-is-evil/
+
+https://www.facebook.com/notes/robin-sloan/julie-rubicon/985697811525170
+
+http://www.newyorker.com/magazine/2016/03/21/the-internet-of-us-and-the-end-of-facts
+
+https://modelviewculture.com/pieces/side-project-culture-opportunities-and-obstacles-for-marginalized-people-in-tech
+
+http://www.tonybates.ca/2016/03/15/technology-and-alienation-online-learning-and-labour-market-needs/
+
 http://dataconomy.com/beginners-guide-history-data-science/
 
 http://interactive.nydailynews.com/2016/03/richard-simmons-disappeared-twisted-mystery/
