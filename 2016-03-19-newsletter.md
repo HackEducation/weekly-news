@@ -1,5 +1,17 @@
 ## Hack Education Weekly Newsletter, No. 153
 
+http://josswinn.org/2016/03/17/against-academic-identity/
+
+http://www.cnn.com/2016/03/16/europe/pigeon-air-patrol-pollution-london/index.html
+
+http://opencontent.org/blog/archives/4496
+
+http://excrementalvirtue.com/2016/03/16/close-reading-trump/
+
+http://www.independent.co.uk/news/people/joan-bates-dead-princess-of-sealand-dies-aged-86-a6931106.html
+
+http://geekdad.com/2016/03/death-of-gi-joe/
+
 http://www.wired.com/2016/03/crowdfunding-is-evil/
 
 https://www.facebook.com/notes/robin-sloan/julie-rubicon/985697811525170
