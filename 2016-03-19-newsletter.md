@@ -1,5 +1,19 @@
 ## Hack Education Weekly Newsletter, No. 153
 
+http://educationoutrage.blogspot.com/2016/03/why-dont-universities-offer-money-back.html
+
+https://larrycuban.wordpress.com/2016/03/18/five-things-we-need-to-know-about-technological-change-neil-postman/
+
+https://www.insidehighered.com/blogs/library-babel-fish/bigot-machine
+
+http://qz.com/640302/why-is-so-much-of-our-new-technology-designed-primarily-for-men/
+
+http://cogdogblog.com/2016/03/measurement-or-indicators/
+
+http://www.publicbooks.org/blog/policing-the-borders-of-zootopia
+
+http://hacklibraryschool.com/2016/03/17/algorithms-and-libraries-a-case-for-paying-attention/
+
 http://josswinn.org/2016/03/17/against-academic-identity/
 
 http://www.cnn.com/2016/03/16/europe/pigeon-air-patrol-pollution-london/index.html
