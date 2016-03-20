@@ -1,5 +1,9 @@
 ## Hack Education Weekly Newsletter, No. 153
 
+https://computinged.wordpress.com/2016/03/20/forbes-weighs-in-on-computational-thinking-im-one-of-those-critics/
+
+http://motherboard.vice.com/read/twitters-new-algorithmic-timeline-isnt-about-usability-its-about-tracking-your-behavior
+
 http://educationoutrage.blogspot.com/2016/03/why-dont-universities-offer-money-back.html
 
 https://larrycuban.wordpress.com/2016/03/18/five-things-we-need-to-know-about-technological-change-neil-postman/
