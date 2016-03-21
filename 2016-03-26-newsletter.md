@@ -11,3 +11,5 @@ http://harvardmagazine.com/2016/03/harvards-eugenics-era
 http://musicfordeckchairs.com/blog/2016/03/21/heresy-and-kindness/
 
 http://cogdogblog.com/2016/03/indie-ed-tech/
+
+http://blogs.lse.ac.uk/politicsandpolicy/betting-on-the-future-with-social-media/
