@@ -2,6 +2,12 @@
 
 https://soundcloud.com/officialsxsw/closing-remarks-bruce-sterling-sxsw-interactive-2016
 
+http://blog.csta.acm.org/2016/03/15/a-history-of-the-new-math-and-lessons-for-cs-ed/
+
+http://thebaffler.com/salvos/made-a-moron
+
+http://www.atlasobscura.com/articles/the-strange-tale-of-echo-the-parrot-who-saw-too-much
+
 http://motherboard.vice.com/read/the-inherent-bias-of-facial-recognition
 
 http://www.buzzfeed.com/nielaorr/two-college-degrees-later-i-was-still-picking-kale-for-rich#.jfAl6vjx2
