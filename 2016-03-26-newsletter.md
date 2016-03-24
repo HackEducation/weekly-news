@@ -4,6 +4,12 @@ https://soundcloud.com/officialsxsw/closing-remarks-bruce-sterling-sxsw-interact
 
 http://blog.csta.acm.org/2016/03/15/a-history-of-the-new-math-and-lessons-for-cs-ed/
 
+http://www.jonbecker.net/ranty-blog-post-about-big-data-learning-analytics-higher-ed/
+
+http://www.buzzfeed.com/annehelenpetersen/jennifer-garner-minivan-majority#.ayZjx0EJ2
+
+http://kottke.org/16/03/a-history-of-electronic-music-in-476-songs
+
 http://bavatuesdays.com/the-personal-in-indie/
 
 http://www.hookandeye.ca/2016/03/the-unbearable-privilege-of-cynicism.html
