@@ -4,6 +4,14 @@ https://soundcloud.com/officialsxsw/closing-remarks-bruce-sterling-sxsw-interact
 
 http://blog.csta.acm.org/2016/03/15/a-history-of-the-new-math-and-lessons-for-cs-ed/
 
+http://bavatuesdays.com/the-personal-in-indie/
+
+http://www.hookandeye.ca/2016/03/the-unbearable-privilege-of-cynicism.html
+
+http://www.the-other-jeff.com/2016/03/kevin-carey-isnt-alone-in-exploiting-the-word-university-either/
+
+http://www.seanmichaelmorris.com/blog//on-love-critical-pedagogy-and-the-work-we-must-do
+
 http://thebaffler.com/salvos/made-a-moron
 
 http://www.atlasobscura.com/articles/the-strange-tale-of-echo-the-parrot-who-saw-too-much
