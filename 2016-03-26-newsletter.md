@@ -2,6 +2,14 @@
 
 https://soundcloud.com/officialsxsw/closing-remarks-bruce-sterling-sxsw-interactive-2016
 
+http://bavatuesdays.com/lo-fi-ed-tech/
+
+http://pitchfork.com/features/article/9833-yearbook-the-chicago-house-and-hardcore-revolutions-of-1984/
+
+(Microsoft AI)
+
+http://www.cato.org/american-big-brother
+
 http://blog.csta.acm.org/2016/03/15/a-history-of-the-new-math-and-lessons-for-cs-ed/
 
 http://www.jonbecker.net/ranty-blog-post-about-big-data-learning-analytics-higher-ed/
