@@ -4,6 +4,8 @@ https://soundcloud.com/officialsxsw/closing-remarks-bruce-sterling-sxsw-interact
 
 http://bavatuesdays.com/lo-fi-ed-tech/
 
+http://hapgood.us/2016/03/19/chatbots-for-first-year-student-success/
+
 http://pitchfork.com/features/article/9833-yearbook-the-chicago-house-and-hardcore-revolutions-of-1984/
 
 (Microsoft AI)
