@@ -8,7 +8,19 @@ http://hapgood.us/2016/03/19/chatbots-for-first-year-student-success/
 
 http://pitchfork.com/features/article/9833-yearbook-the-chicago-house-and-hardcore-revolutions-of-1984/
 
+https://ellacydawson.wordpress.com/2016/03/25/how-news-genius-silences-writers/
+
 (Microsoft AI)
+
+https://medium.com/@glennf/citation-appropriation-and-fair-use-news-genius-picks-up-again-where-failures-left-off-d640719a82ab#.9sf6s4tks
+
+http://edutechnica.com/2016/03/25/the-rise-of-the-shadow-lms/
+
+http://halfanhour.blogspot.com/2016/03/emergence-recognition.html
+
+https://www.washingtonpost.com/opinions/when-our-digital-memory-is-lost-in-the-cloud-what-becomes-of-our-human-history/2016/03/24/11ed1482-ba46-11e5-99f3-184bc379b12d_story.html
+
+https://lareviewofbooks.org/essay/melissa-click-and-american-anger
 
 http://www.cato.org/american-big-brother
 
@@ -19,8 +31,6 @@ http://www.jonbecker.net/ranty-blog-post-about-big-data-learning-analytics-highe
 http://www.buzzfeed.com/annehelenpetersen/jennifer-garner-minivan-majority#.ayZjx0EJ2
 
 http://kottke.org/16/03/a-history-of-electronic-music-in-476-songs
-
-http://bavatuesdays.com/the-personal-in-indie/
 
 http://www.hookandeye.ca/2016/03/the-unbearable-privilege-of-cynicism.html
 
@@ -42,13 +52,11 @@ http://jennbbinis.com/2016/03/21/the-problem-with-kohn/
 
 http://go-to-hellman.blogspot.com/2016/03/sci-hub-libgen-and-total-information.html
 
-http://adamcroom.com/2016/03/framing-indie-edtech/ - http://adamcroom.com/2016/03/indie-edtech-future-and-funding/ - there's another post from Adam, one from Alan, and one from Tim to add here, as well as my thoughts on aud.life
-
 http://harvardmagazine.com/2016/03/harvards-eugenics-era
 
 http://musicfordeckchairs.com/blog/2016/03/21/heresy-and-kindness/
 
-http://cogdogblog.com/2016/03/indie-ed-tech/
+Round-up of Indie Ed-Tech blog posts
 
 http://blogs.lse.ac.uk/politicsandpolicy/betting-on-the-future-with-social-media/
 
