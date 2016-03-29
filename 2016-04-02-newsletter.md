@@ -1,5 +1,7 @@
 ## Hack Education Weekly Newsletter, No. 155
 
+http://boingboing.net/2016/03/29/surveillance-has-reversed-the.html
+
 http://www.thetattooedprof.com/archives/572
 
 http://edutechnica.com/2016/03/28/a-flexible-and-personal-learning-environment/
