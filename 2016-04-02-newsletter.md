@@ -8,6 +8,26 @@ http://edutechnica.com/2016/03/28/a-flexible-and-personal-learning-environment/
 
 http://www.roughtype.com/?p=6864
 
+http://educationoutrage.blogspot.com/2016/03/pragmatic-learning-its-not-fun.html
+
+http://davecormier.com/edblog/2016/03/30/resilience-and-transitioning-students-to-university/
+
+http://www.universityaffairs.ca/opinion/speculative-diction/critiques-higher-ed-beyond-animosity-anecdote/
+
+http://laughingsquid.com/a-profile-of-the-nasa-genius-who-invented-the-super-soaker/
+
+http://adamcroom.com/2016/03/the-vinyl-subdomain/
+
+https://storify.com/rodneysampson/adayinthelife
+
+http://theconcourse.deadspin.com/the-deranged-true-story-of-heavy-metal-parking-lot-the-1758026762
+
+http://jackschaedler.github.io/handwriting-recognition/
+
+http://randar.com/post/141877026935/wehavethetechnology79-my-favourite-the-kitchen
+
+http://cogdogblog.com/2016/03/piles-of-things/
+
 http://www.niemanlab.org/2016/03/is-there-a-way-to-save-the-best-of-the-decentralized-early-internet-in-an-age-of-facebook-and-google/
 
 http://www.theatlantic.com/technology/archive/2016/03/virtual-reality-is-just-television-for-the-computer-junkie/475632/
