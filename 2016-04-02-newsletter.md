@@ -4,6 +4,10 @@ http://boingboing.net/2016/03/29/surveillance-has-reversed-the.html
 
 http://www.thetattooedprof.com/archives/572
 
+http://www.slate.com/articles/health_and_science/education/2016/03/andrew_hacker_s_the_math_myth_is_a_great_example_of_mathematics_illiteracy.html
+
+http://alexmuir.com/facebook-is-the-new-excel
+
 http://edutechnica.com/2016/03/28/a-flexible-and-personal-learning-environment/
 
 http://www.roughtype.com/?p=6864
