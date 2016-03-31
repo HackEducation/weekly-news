@@ -2,6 +2,22 @@
 
 http://boingboing.net/2016/03/29/surveillance-has-reversed-the.html
 
+http://mattbruenig.com/2016/03/30/liberalism-is-a-philosophy-of-rich-white-male-domination/
+
+https://aprilhathcock.wordpress.com/2016/03/28/cry-me-a-white-male-river/
+
+http://kottke.org/16/03/the-invention-of-the-jump-shot
+
+https://versions.killscreen.com/we-should-be-talking-about-torture-in-vr/
+
+http://boingboing.net/2016/03/30/landmark-study-on-the-effects.html
+
+http://kottke.org/16/03/the-next-100-years-of-humans-in-space
+
+http://5tjt.com/the-amazon-echo-and-shabbos-2/
+
+http://fivethirtyeight.com/features/shut-up-about-harvard/
+
 http://www.thetattooedprof.com/archives/572
 
 http://www.slate.com/articles/health_and_science/education/2016/03/andrew_hacker_s_the_math_myth_is_a_great_example_of_mathematics_illiteracy.html
