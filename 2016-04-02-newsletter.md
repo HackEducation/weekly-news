@@ -4,6 +4,10 @@ http://boingboing.net/2016/03/29/surveillance-has-reversed-the.html
 
 http://mattbruenig.com/2016/03/30/liberalism-is-a-philosophy-of-rich-white-male-domination/
 
+http://theory.cribchronicles.com/2016/03/31/third-places-third-spaces-digped-pei/
+
+http://thelongandshort.org/forecasts/collective-fiction-elevated
+
 https://aprilhathcock.wordpress.com/2016/03/28/cry-me-a-white-male-river/
 
 http://kottke.org/16/03/the-invention-of-the-jump-shot
