@@ -1,5 +1,19 @@
 ## Hack Education Weekly Newsletter, No. 155
 
+http://davecormier.com/edblog/2016/04/01/in-search-of-a-new-resilience-for-learning/
+
+http://www.roughtype.com/?p=6876
+
+https://francesbell.wordpress.com/2016/04/02/institutional-fragility-and-resilience/
+
+http://coursera.tumblr.com/post/142073041312/new-coursera-for-pets-specializations
+
+https://timklapdor.wordpress.com/2016/04/02/learning-on-rails/
+
+http://redpincushion.us/blog/teaching-and-learning/not-yetness-and-learnification/
+
+https://en.wikipedia.org/wiki/List_of_animals_with_fraudulent_diplomas - http://coursera.tumblr.com/post/142073041312/new-coursera-for-pets-specializations
+
 http://boingboing.net/2016/03/29/surveillance-has-reversed-the.html
 
 http://mattbruenig.com/2016/03/30/liberalism-is-a-philosophy-of-rich-white-male-domination/
