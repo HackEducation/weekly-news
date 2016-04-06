@@ -2,6 +2,24 @@
 
 http://www.yasminnair.net/content/suey-park-and-afterlife-twitter-0
 
+https://story.californiasunday.com/crowds-on-demand
+
+http://www.theawl.com/2016/04/watching-the-woke-olympics
+
+http://www.veletsianos.com/2016/04/05/compassion-kindness-care-in-digital-learning-contexts/
+
+http://www.theatlantic.com/technology/archive/2016/04/bls-data-tech/476763/
+
+https://points.datasociety.net/where-do-we-find-ethics-d0b9e8a7f4e6#.td3tc711m
+
+http://blog.archive.org/2016/04/05/getting-back-to-view-source-on-the-web-the-movable-web-decentralized-web/
+
+http://laughingsquid.com/where-did-emojis-come-from/
+
+http://www.npr.org/sections/ed/2016/04/05/472139919/wax-tablets-chicken-rustling-and-the-medieval-roots-of-the-modern-university
+
+http://terribleminds.com/ramble/2016/04/05/an-open-letter-to-tiny-house-hunters/
+
 http://www.eater.com/2016/4/3/11326520/frito-pie-explained
 
 https://sports.vice.com/en_us/article/four-years-a-student-athlete-the-racial-injustice-of-big-time-college-sports
