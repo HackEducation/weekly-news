@@ -1,5 +1,17 @@
 ## HEWN, No. 156
 
+https://modelviewculture.com/news/the-techies-project-and-why-unpaid-labor-for-diversity-in-tech-needs-to-stop
+
+http://www.nytimes.com/2016/04/07/business/dealbook/the-evolution-of-fintech.html
+
+http://www.theatlantic.com/technology/archive/2016/04/how-to-write-a-history-of-a-video-game-war/476964/
+
+http://thebaffler.com/salvos/new-man-4chan-nagle
+
+https://newrepublic.com/article/132407/voters-angry-its-1099-economy-stupid
+
+http://blogs.edweek.org/edweek/edtechresearcher/2016/04/a_harkness_moment_for_the_21st_century_connected_courses.html
+
 http://www.yasminnair.net/content/suey-park-and-afterlife-twitter-0
 
 https://story.californiasunday.com/crowds-on-demand
