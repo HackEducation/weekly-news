@@ -2,6 +2,18 @@
 
 https://modelviewculture.com/news/the-techies-project-and-why-unpaid-labor-for-diversity-in-tech-needs-to-stop
 
+http://cen.acs.org/articles/94/i14/chemists-tilt-heads-virtual-reality.html
+
+https://discover.wordpress.com/2016/04/07/tressie-mcmillan-cottom/
+
+http://www.hollywoodreporter.com/features/four-seasons-restaurant-anna-wintour-880746
+
+http://www.theatlantic.com/technology/archive/2015/09/the-car-that-killed-glamour/407248/
+
+http://hackeducation.com/2016/04/07/blockchain-education-guide
+
+http://gizmodo.com/meet-the-forgotten-rocket-girls-who-helped-nasa-reach-t-1769254047
+
 http://www.nytimes.com/2016/04/07/business/dealbook/the-evolution-of-fintech.html
 
 http://www.theatlantic.com/technology/archive/2016/04/how-to-write-a-history-of-a-video-game-war/476964/
