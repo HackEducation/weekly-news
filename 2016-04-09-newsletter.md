@@ -2,9 +2,17 @@
 
 https://modelviewculture.com/news/the-techies-project-and-why-unpaid-labor-for-diversity-in-tech-needs-to-stop
 
+http://www.nytimes.com/2016/04/08/business/economy/joel-kurtzman-economist-of-gloom-who-shifted-to-optimism-dies-at-68.html
+
+https://youtu.be/Ir1-nSAwQMs
+
+http://www.theatlantic.com/technology/archive/2016/04/cashless-society/477411/
+
 http://cen.acs.org/articles/94/i14/chemists-tilt-heads-virtual-reality.html
 
 https://discover.wordpress.com/2016/04/07/tressie-mcmillan-cottom/
+
+http://www.buzzfeed.com/mathonan/searching-for-google-ceo-sundar-pichai-the-most-powerful-tec#.lnwMYbagz
 
 http://www.hollywoodreporter.com/features/four-seasons-restaurant-anna-wintour-880746
 
