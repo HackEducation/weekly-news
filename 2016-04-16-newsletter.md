@@ -6,6 +6,20 @@ http://priceonomics.com/how-the-cordon-bleu-lent-its-name-to-the/
 
 https://youtu.be/Ir1-nSAwQMs
 
+http://www.nytimes.com/2016/04/17/magazine/the-looming-threat-of-avian-flu.html
+
+http://www.uncomputing.org/?p=1716
+
+http://jitp.commons.gc.cuny.edu/make-a-twitter-bot-in-python-iterative-code-examples/
+
+https://hapgood.us/2016/04/12/retweeting-and-comprehension/
+
+https://twitter.com/audreywatters/status/719916438547337216/photo/1
+
+http://xkcd.com/1667/
+
+http://www.macworld.com/article/1014418/25aoliza.html
+
 http://deadspin.com/how-crying-jordan-became-a-thing-1757298714
 
 http://www.nytimes.com/2016/04/03/magazine/what-happened-when-venture-capitalists-took-over-the-golden-state-warriors.html
