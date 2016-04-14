@@ -4,6 +4,18 @@ http://www.chicagoreader.com/chicago/cheap-trick-oral-history-nielsen-zander-car
 
 http://priceonomics.com/how-the-cordon-bleu-lent-its-name-to-the/
 
+http://www.nytimes.com/2016/04/17/magazine/the-minecraft-generation.html?_r=0
+
+http://www.newyorker.com/magazine/2016/04/18/inside-americas-infrastructure-problem
+
+http://dp.la/exhibitions/exhibits/show/history-us-public-libraries
+
+http://www.tampabay.com/projects/2016/food/farm-to-fable/restaurants/
+
+http://annlarson.org/2016/04/03/against-gainful-employment/
+
+http://suburbdad.blogspot.com/2016/04/campus-radio-stations-and-newspapers.html
+
 https://youtu.be/Ir1-nSAwQMs
 
 http://www.nytimes.com/2016/04/17/magazine/the-looming-threat-of-avian-flu.html
