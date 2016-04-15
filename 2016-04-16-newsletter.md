@@ -1,5 +1,17 @@
 ## HEWN, No. 157
 
+https://psmag.com/a-history-of-the-subtle-sexism-of-home-technology-de4af3e5939a#.ow0ntpamr
+
+https://academicirregularities.wordpress.com/2015/11/26/raising-the-bar-the-metric-tide-that-sinks-all-boats/
+
+http://www.cjr.org/innovations/investigating_algorithms.php
+
+https://www.washingtonpost.com/news/the-intersect/wp/2016/04/14/how-do-you-stop-online-harassment-try-banning-the-men/
+
+http://paleofuture.gizmodo.com/the-untold-story-of-the-teen-hackers-who-transformed-th-1770977586
+
+http://www.rollingstone.com/politics/news/how-wall-street-profits-from-student-debt-20160414
+
 http://www.chicagoreader.com/chicago/cheap-trick-oral-history-nielsen-zander-carlos-rockford/Content?oid=21705064
 
 http://priceonomics.com/how-the-cordon-bleu-lent-its-name-to-the/
