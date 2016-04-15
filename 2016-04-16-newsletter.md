@@ -6,6 +6,14 @@ https://academicirregularities.wordpress.com/2015/11/26/raising-the-bar-the-metr
 
 http://www.cjr.org/innovations/investigating_algorithms.php
 
+https://www.technologyreview.com/s/601276/5-things-you-need-to-know-about-facebooks-next-10-years/
+
+http://changinguniversities.blogspot.com/2016/04/the-university-of-public-relations.html
+
+http://www.theatlantic.com/technology/archive/2016/04/rental-company-control/478365/
+
+My blockchain article
+
 https://www.washingtonpost.com/news/the-intersect/wp/2016/04/14/how-do-you-stop-online-harassment-try-banning-the-men/
 
 http://paleofuture.gizmodo.com/the-untold-story-of-the-teen-hackers-who-transformed-th-1770977586
