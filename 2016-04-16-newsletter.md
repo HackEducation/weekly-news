@@ -6,6 +6,14 @@ https://academicirregularities.wordpress.com/2015/11/26/raising-the-bar-the-metr
 
 http://www.cjr.org/innovations/investigating_algorithms.php
 
+http://gizmodo.com/facebook-employees-asked-mark-zuckerberg-if-they-should-1771012990
+
+http://www.theawl.com/2016/04/gone-gator
+
+http://www.nytimes.com/2016/04/17/us/georgetown-university-search-for-slave-descendants.html
+
+http://www.lrb.co.uk/v38/n08/john-lanchester/when-bitcoin-grows-up
+
 https://www.technologyreview.com/s/601276/5-things-you-need-to-know-about-facebooks-next-10-years/
 
 http://changinguniversities.blogspot.com/2016/04/the-university-of-public-relations.html
