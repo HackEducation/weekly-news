@@ -11,3 +11,11 @@ http://www.theguardian.com/books/2016/apr/15/neoliberalism-ideology-problem-geor
 http://arstechnica.com/science/2016/04/dyson-dryers-hurl-60x-more-viruses-most-at-kid-face-height-than-other-dryers/
 
 http://gawker.com/i-have-no-idea-what-this-startup-does-and-nobody-will-t-1771036238
+
+https://www.jacobinmag.com/2016/04/chicago-public-schools-charters-closings-emanuel/
+
+http://signsjournal.org/unfinished-business#mcmillancottom
+
+http://boingboing.net/2016/04/20/oh-this-crazy-vr-hype.html
+
+https://www.wired.com/2016/04/magic-leap-vr/
