@@ -19,3 +19,13 @@ http://signsjournal.org/unfinished-business#mcmillancottom
 http://boingboing.net/2016/04/20/oh-this-crazy-vr-hype.html
 
 https://www.wired.com/2016/04/magic-leap-vr/
+
+http://fusion.net/story/294276/prince-music-not-on-the-internet/
+
+https://medium.com/message/i-know-times-are-changing-f6032d87c97b#.7pk81mqxt
+
+https://soundcloud.com/anildash/let-me-guide-u
+
+http://motherboard.vice.com/read/virtual-manspreading-when-men-take-up-extra-space-online
+
+http://www.nytimes.com/2016/04/24/magazine/earning-the-woke-badge.html
