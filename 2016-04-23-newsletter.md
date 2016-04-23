@@ -6,6 +6,8 @@ http://www.newyorker.com/culture/culture-desk/the-unoriginal-originality-of-led-
 
 http://stager.tv/blog/?p=3657
 
+https://versions.killscreen.com/what-cyberpunk-was-and-what-it-will-be/
+
 http://followersoftheapocalyp.se/babys-first-semantic-blog-citation-metrics-oer16/
 
 https://medium.com/@stephaniewittelswachs/the-end-of-empathy-5d8383b066d3#.klndvuqcl
