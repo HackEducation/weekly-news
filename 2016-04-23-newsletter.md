@@ -6,6 +6,12 @@ http://www.newyorker.com/culture/culture-desk/the-unoriginal-originality-of-led-
 
 http://stager.tv/blog/?p=3657
 
+http://followersoftheapocalyp.se/babys-first-semantic-blog-citation-metrics-oer16/
+
+https://medium.com/@stephaniewittelswachs/the-end-of-empathy-5d8383b066d3#.klndvuqcl
+
+http://text-patterns.thenewatlantis.com/2016/04/prince-tech-and-californian-ideology.html
+
 http://www.theguardian.com/books/2016/apr/15/neoliberalism-ideology-problem-george-monbiot
 
 http://arstechnica.com/science/2016/04/dyson-dryers-hurl-60x-more-viruses-most-at-kid-face-height-than-other-dryers/
