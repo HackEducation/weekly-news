@@ -6,6 +6,14 @@ https://backchannel.com/why-western-mass-doesn-t-have-the-internet-77922828048c#
 
 https://larrycuban.wordpress.com/2016/04/25/rubiks-cube-and-school-reform-part-1/
 
+https://nplusonemag.com/issue-25/on-the-fringe/uncanny-valley/
+
+http://www.masmithers.com/2016/04/we-need-to-rethink-university-it-services/ (See also: M. Weller's article)
+
+https://medium.com/@joshuatopolsky/your-media-business-will-not-be-saved-1b0716b5010c#.lp8mhs1l0
+
+http://www.theguardian.com/commentisfree/2016/apr/24/the-new-feudalism-silicon-valley-overlords-advertising-necessary-evil
+
 http://www.danielwillingham.com/daniel-willingham-science-and-education-blog/the-brain-in-your-pocket
 
 https://timklapdor.wordpress.com/2016/04/25/administrivia-and-apis/
