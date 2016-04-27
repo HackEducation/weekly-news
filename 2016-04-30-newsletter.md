@@ -8,6 +8,16 @@ https://larrycuban.wordpress.com/2016/04/25/rubiks-cube-and-school-reform-part-1
 
 https://nplusonemag.com/issue-25/on-the-fringe/uncanny-valley/
 
+https://youtu.be/6uzBHhPEWpE
+
+https://youtu.be/ILHRVgR8PoE
+
+http://www.newyorker.com/culture/cultural-comment/prince-cecil-taylor-and-beyonces-shape-shifting-black-body
+
+http://joi.ito.com/weblog/2016/04/26/reinventing-boo.html
+
+http://fusion.net/story/294770/women-body-hackers/
+
 http://www.masmithers.com/2016/04/we-need-to-rethink-university-it-services/ (See also: M. Weller's article)
 
 https://medium.com/@joshuatopolsky/your-media-business-will-not-be-saved-1b0716b5010c#.lp8mhs1l0
