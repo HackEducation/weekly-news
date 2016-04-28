@@ -8,6 +8,16 @@ https://larrycuban.wordpress.com/2016/04/25/rubiks-cube-and-school-reform-part-1
 
 https://nplusonemag.com/issue-25/on-the-fringe/uncanny-valley/
 
+http://boingboing.net/2016/04/27/walter-cronkite-in-the-compute.html
+
+http://coreyrobin.com/2016/04/27/when-neoliberalism-was-young-a-lookback-on-clintonism-before-clinton/
+
+http://qz.com/669983/maybe-we-should-let-google-vote-for-us/
+
+http://www.nytimes.com/2016/04/27/opinion/dont-blame-silicon-valley-for-theranos.html
+
+http://musicfordeckchairs.com/blog/2016/04/29/faith/
+
 https://youtu.be/6uzBHhPEWpE
 
 https://youtu.be/ILHRVgR8PoE
