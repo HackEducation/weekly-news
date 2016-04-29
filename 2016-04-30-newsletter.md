@@ -1,5 +1,17 @@
 ## HEWN, No. 159
 
+http://fivethirtyeight.com/features/who-will-debunk-the-debunkers/
+
+http://nowviskie.org/2016/everywhere-every-when/
+
+https://www.insidehighered.com/blogs/just-visiting/shut-down-parent-portals-dangers-real-time-data
+
+http://opencontent.org/blog/archives/4529
+
+http://www.elearnspace.org/blog/2016/04/28/reflecting-on-learning-analytics-and-solar/
+
+http://www.theatlantic.com/science/archive/2016/04/this-technology-will-allow-anyone-to-sequence-dna-anywhere/479625/
+
 http://www.universityaffairs.ca/opinion/in-my-opinion/not-so-fast-a-critique-of-the-slow-professor/
 
 https://backchannel.com/why-western-mass-doesn-t-have-the-internet-77922828048c#.3z7v8ld35
