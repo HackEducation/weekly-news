@@ -8,6 +8,12 @@ https://www.insidehighered.com/blogs/just-visiting/shut-down-parent-portals-dang
 
 http://opencontent.org/blog/archives/4529
 
+http://www.nytimes.com/2016/04/30/books/walt-whitman-promoted-a-paleo-diet-who-knew.html
+
+https://www.kickstarter.com/projects/1181731207/learnometer-better-learning-by-tracking-environmen
+
+http://coreyrobin.com/2016/04/29/neoliberalism-a-quick-follow-up/
+
 http://www.elearnspace.org/blog/2016/04/28/reflecting-on-learning-analytics-and-solar/
 
 http://www.theatlantic.com/science/archive/2016/04/this-technology-will-allow-anyone-to-sequence-dna-anywhere/479625/
