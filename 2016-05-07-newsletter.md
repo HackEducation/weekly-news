@@ -10,6 +10,14 @@ http://nymag.com/selectall/2016/04/the-feed-is-dying.html
 
 https://academeblog.org/2016/05/02/punch-with-care/
 
+http://www.theawl.com/2016/05/i-cant-see-how-this-anne-frank-virtual-reality-film-might-be-a-bad-idea
+
+http://fredrikdeboer.com/2016/05/03/ernest-hemingway-joins-the-content-industry/
+
+http://andreessenhoroscopes.com/
+
+https://chroniclevitae.com/news/1382-the-men-who-email-me
+
 http://www.vanityfair.com/news/2016/05/theranos-silicon-valley-media
 
 http://adamcroom.com/2016/05/some-musings-on-barriers-to-remix/
