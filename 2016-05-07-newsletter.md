@@ -1,5 +1,19 @@
 ## HEWN, No. 160
 
+https://www.technologyreview.com/s/601375/the-nauseating-disappointment-of-oculus-rift/
+
+http://techcrunch.com/2016/05/04/concerns-raised-over-broad-scope-of-deepmind-nhs-health-data-sharing-deal/
+
+https://psmag.com/why-hannah-arendt-matters-in-2016-e8366c4c2c95?mc_cid=394cf74818&mc_eid=3b3680e701#.z6c1aps3w
+
+https://www.edsurge.com/news/2016-05-04-backward-innovation-the-great-unbundling-of-higher-ed-s-online-service-providers (see also stories about "equity" that it published this week)
+
+https://youtu.be/41ymjLLteBo
+
+http://fusion.net/story/298448/history-becky-with-the-good-hair-beyonce-lemonade/
+
+http://www.salon.com/2016/05/01/googles_new_media_apocalypse_how_the_search_giant_wants_to_accelerate_the_end_of_the_age_of_websites/
+
 http://text-patterns.thenewatlantis.com/2016/05/critiquing-critique-of-digital.html
 
 https://hapgood.us/2016/04/30/simons-watchmakers-and-the-future-of-courseware/
