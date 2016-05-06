@@ -1,5 +1,17 @@
 ## HEWN, No. 160
 
+http://www.theatlantic.com/science/archive/2016/05/every-episode-of-david-attenboroughs-life-series-ranked/480678/
+
+http://static.latimes.com/oxycontin-part1/
+
+http://www.rolinmoe.org/main/krapps-last-failure-cv/
+
+https://www.theguardian.com/technology/2016/may/02/google-microsoft-pact-antitrust-surveillance-capitalism
+
+http://blogs.swarthmore.edu/burke/blog/2016/05/05/on-the-arrival-of-rough-beasts/
+
+http://www.bloomberg.com/graphics/2016-amazon-same-day/
+
 https://www.technologyreview.com/s/601375/the-nauseating-disappointment-of-oculus-rift/
 
 http://techcrunch.com/2016/05/04/concerns-raised-over-broad-scope-of-deepmind-nhs-health-data-sharing-deal/
