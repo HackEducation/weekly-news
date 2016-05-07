@@ -1,5 +1,7 @@
 ## HEWN, No. 160
 
+http://text-patterns.thenewatlantis.com/2016/05/on-quants-and-creatives.html
+
 http://nymag.com/selectall/2016/05/craig-wright-uh-actually-i-wont-prove-that-im-satoshi-nakamoto.html
 
 http://www.theatlantic.com/science/archive/2016/05/every-episode-of-david-attenboroughs-life-series-ranked/480678/
