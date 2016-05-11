@@ -2,6 +2,8 @@
 
 https://tuotilo.wordpress.com/2016/05/05/to-be-in-dh/
 
+https://socialmediacollective.org/2016/05/09/facebook-trending-its-made-of-people-but-we-should-have-already-known-that/
+
 https://hapgood.us/2016/05/10/we-have-personalization-backwards/
 
 https://twitter.com/jameswest2010/status/730169124349972480/photo/1
