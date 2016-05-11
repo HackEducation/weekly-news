@@ -2,6 +2,32 @@
 
 https://tuotilo.wordpress.com/2016/05/05/to-be-in-dh/
 
+https://hapgood.us/2016/05/10/we-have-personalization-backwards/
+
+https://twitter.com/jameswest2010/status/730169124349972480/photo/1
+
+http://fusion.net/story/300892/facebook-news-behemoth/
+
+http://mfeldstein.com/the-battle-for-personalized-learning/
+
+http://www.telegraph.co.uk/fashion/people/a-visual-history-of-crinolines---fashions-most-magnificent-disas/
+
+https://www.technologyreview.com/s/601424/algorithm-clones-van-goghs-artistic-style-and-pastes-it-onto-other-images-movies/
+
+http://text-patterns.thenewatlantis.com/2016/05/tony-stark-and-view-from-above.html
+
+http://www.kurzweilai.net/by-the-year-2040-embryo-selection-could-replace-sex-as-the-way-most-of-us-make-babies
+
+http://www.bellhooksinstitute.com/blog/2016/5/9/moving-beyond-pain
+
+http://blog.mrmeyer.com/2016/the-difference-between-pure-and-applied-math/
+
+https://medium.com/@ginasue/the-lie-of-liberal-intolerance-on-campus-6ba4c67ea8e0#.jqy4cviq5
+
+http://www.theawl.com/2016/05/3d-printing-the-void
+
+https://edhistory101.com/episodes-2/
+
 http://stager.tv/blog/?p=3777
 
 https://www.insidehighered.com/blogs/technology-and-learning/setting-straight-record-tower%E2%80%99s-tech
