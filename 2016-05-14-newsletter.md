@@ -2,6 +2,16 @@
 
 https://tuotilo.wordpress.com/2016/05/05/to-be-in-dh/
 
+http://www.elearnspace.org/blog/2016/05/12/the-future-of-learning-digital-distributed-data-driven/
+
+http://dmlcentral.net/schooling-silicon-valley/
+
+https://psmag.com/the-privatization-of-childhood-play-956b02c154d3#.f5xqtidfa
+
+http://www.windley.com//archives/2016/05/principles_of_self-sovereign_identity.shtml
+
+http://techcrunch.com/2016/05/11/charged/
+
 https://socialmediacollective.org/2016/05/09/facebook-trending-its-made-of-people-but-we-should-have-already-known-that/
 
 https://hapgood.us/2016/05/10/we-have-personalization-backwards/
