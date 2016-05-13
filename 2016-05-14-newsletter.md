@@ -6,6 +6,20 @@ http://www.elearnspace.org/blog/2016/05/12/the-future-of-learning-digital-distri
 
 http://dmlcentral.net/schooling-silicon-valley/
 
+https://medium.com/@mkirschenbaum/am-i-a-digital-humanist-confessions-of-a-neoliberal-tool-1bc64caaa984#.sgfb5yxu5
+
+http://www.neh.gov/humanities/2016/spring/feature/computers-in-english-class-circa-1974
+
+http://mfeldstein.com/we-have-personalization-backwards/
+
+http://techcrunch.com/2016/05/10/please-dont-learn-to-code/
+
+http://www.theatlantic.com/technology/archive/2016/05/archiving-a-website-for-ten-thousand-years/482385/
+
+http://www.thedailybeast.com/articles/2016/05/11/one-simple-trick-to-make-journalism-profitable-copy-and-paste-it.html
+
+http://robhorningtni.tumblr.com/post/144209423455/trending
+
 https://psmag.com/the-privatization-of-childhood-play-956b02c154d3#.f5xqtidfa
 
 http://www.windley.com//archives/2016/05/principles_of_self-sovereign_identity.shtml
@@ -20,7 +34,7 @@ https://twitter.com/jameswest2010/status/730169124349972480/photo/1
 
 http://fusion.net/story/300892/facebook-news-behemoth/
 
-http://mfeldstein.com/the-battle-for-personalized-learning/
+http://mfeldstein.com/the-battle-for-personalized-learning/ (edsurge's post on *not* defining personalized learning)
 
 http://www.telegraph.co.uk/fashion/people/a-visual-history-of-crinolines---fashions-most-magnificent-disas/
 
