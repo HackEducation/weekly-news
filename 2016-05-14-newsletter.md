@@ -34,7 +34,9 @@ https://twitter.com/jameswest2010/status/730169124349972480/photo/1
 
 http://fusion.net/story/300892/facebook-news-behemoth/
 
-http://mfeldstein.com/the-battle-for-personalized-learning/ (edsurge's post on *not* defining personalized learning)
+http://mfeldstein.com/the-battle-for-personalized-learning/ 
+
+https://www.edsurge.com/news/2016-05-11-stop-trying-to-define-personalized-learning
 
 http://www.telegraph.co.uk/fashion/people/a-visual-history-of-crinolines---fashions-most-magnificent-disas/
 
