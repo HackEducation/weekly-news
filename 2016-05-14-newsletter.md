@@ -12,6 +12,8 @@ http://www.neh.gov/humanities/2016/spring/feature/computers-in-english-class-cir
 
 http://mfeldstein.com/we-have-personalization-backwards/
 
+http://techcrunch.com/2016/05/08/universities-cant-solve-our-skills-gap-problem-because-they-caused-it/
+
 http://techcrunch.com/2016/05/10/please-dont-learn-to-code/
 
 http://www.theatlantic.com/technology/archive/2016/05/archiving-a-website-for-ten-thousand-years/482385/
