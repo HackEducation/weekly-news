@@ -6,6 +6,10 @@ http://www.elearnspace.org/blog/2016/05/12/the-future-of-learning-digital-distri
 
 http://dmlcentral.net/schooling-silicon-valley/
 
+https://hapgood.us/2016/05/13/choral-explanations/
+
+http://alex-reid.net/2016/05/otters-noses-digital-humanities-political-progress-and-splitters.html
+
 https://medium.com/@mkirschenbaum/am-i-a-digital-humanist-confessions-of-a-neoliberal-tool-1bc64caaa984#.sgfb5yxu5
 
 http://www.neh.gov/humanities/2016/spring/feature/computers-in-english-class-circa-1974
