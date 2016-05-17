@@ -2,6 +2,10 @@
 
 http://www.newyorker.com/tech/elements/the-coming-horror-of-virtual-reality
 
+http://text-patterns.thenewatlantis.com/2016/05/commuters-and-tourists-pedestrians-and.html
+
+http://www.digitalcounterrevolution.co.uk/2016/knowledge-abundance-and-digital-pedagogy/
+
 http://educationoutrage.blogspot.com/2016/05/should-we-fear-ai-or-just-fear-people.html
 
 http://www.theguardian.com/commentisfree/2016/may/13/books-ebook-publishers-paper
