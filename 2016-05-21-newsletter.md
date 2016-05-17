@@ -26,3 +26,6 @@ http://text-patterns.thenewatlantis.com/2016/05/print-disinhibition-neighbors.ht
 
 http://suburbdad.blogspot.com/2016/05/the-other-legacy-of-for-profit-college.html
 
+http://moreorlessbunk.net/technology/history-professors-and-technology-why-cant-we-be-friends/
+
+http://alex-reid.net/2016/05/laptops-classrooms-and-matters-of-electrate-concern.html
