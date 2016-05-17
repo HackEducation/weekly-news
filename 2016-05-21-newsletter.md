@@ -15,3 +15,14 @@ https://www.insidehighered.com/news/2016/05/16/train-future-ed-tech-leaders-high
 http://idlewords.com/2016/05/shuffleboard_at_mcmurdo.htm
 
 http://theory.cribchronicles.com/2016/05/15/excellence-the-wild-rumpus/
+
+https://medium.com/@AndrewR_Physics/postcards-from-the-edge-of-academia-8bebbc8631e5#.3aejncp1o
+
+http://motherboard.vice.com/read/were-taking-a-break-from-slack-heres-why
+
+http://www.nytimes.com/2016/04/29/arts/design/-duke-riley-pigeons-fly-by-night.html
+
+http://text-patterns.thenewatlantis.com/2016/05/print-disinhibition-neighbors.html
+
+http://suburbdad.blogspot.com/2016/05/the-other-legacy-of-for-profit-college.html
+
