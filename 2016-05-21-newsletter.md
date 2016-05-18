@@ -8,6 +8,8 @@ http://www.newyorker.com/books/page-turner/the-lingering-legacy-of-psychedelia
 
 https://www.washingtonpost.com/news/the-switch/wp/2016/05/13/new-government-data-shows-a-staggering-number-of-americans-have-stopped-basic-online-activities/
 
+https://www.technologyreview.com/s/601480/the-autonomous-corporation-called-the-dao-is-not-a-good-way-to-spend-130-million/
+
 http://www.richard-hall.org/2016/05/17/on-the-he-white-paper-and-academic-practice/
 
 http://www.newyorker.com/tech/elements/the-coming-horror-of-virtual-reality
