@@ -1,5 +1,15 @@
 ## HEWN, No. 162
 
+http://blogs.scientificamerican.com/cross-check/dear-skeptics-bash-homeopathy-and-bigfoot-less-mammograms-and-war-more/
+
+http://adamcroom.com/2016/05/sticking-a-fork-in-the-lms/
+
+http://www.newyorker.com/books/page-turner/the-lingering-legacy-of-psychedelia
+
+https://www.washingtonpost.com/news/the-switch/wp/2016/05/13/new-government-data-shows-a-staggering-number-of-americans-have-stopped-basic-online-activities/
+
+http://www.richard-hall.org/2016/05/17/on-the-he-white-paper-and-academic-practice/
+
 http://www.newyorker.com/tech/elements/the-coming-horror-of-virtual-reality
 
 http://text-patterns.thenewatlantis.com/2016/05/commuters-and-tourists-pedestrians-and.html
