@@ -2,6 +2,22 @@
 
 http://blogs.scientificamerican.com/cross-check/dear-skeptics-bash-homeopathy-and-bigfoot-less-mammograms-and-war-more/
 
+https://bryanalexander.org/2016/05/19/disciplining-educational-technology/
+
+https://mathbabe.org/2016/05/19/what-is-education-for/
+
+http://blog.mrmeyer.com/2016/moving-the-goalposts-on-personalized-learning/
+
+http://text-patterns.thenewatlantis.com/2016/05/again-with-algorithms.html
+
+https://aeon.co/essays/your-brain-does-not-process-information-and-it-is-not-a-computer
+
+https://timklapdor.wordpress.com/2016/05/19/leadership-outside-the-hierarchy/
+
+https://socialmediacollective.org/2016/05/18/facebook-trends/
+
+http://chronicle.com/article/Why-Audrey-Watters-Thinks-Tech/236525
+
 http://adamcroom.com/2016/05/sticking-a-fork-in-the-lms/
 
 http://www.newyorker.com/books/page-turner/the-lingering-legacy-of-psychedelia
