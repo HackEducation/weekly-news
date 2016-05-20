@@ -2,6 +2,14 @@
 
 http://blogs.scientificamerican.com/cross-check/dear-skeptics-bash-homeopathy-and-bigfoot-less-mammograms-and-war-more/
 
+http://www.vox.com/2016/5/13/11670940/tesla-capital-glut
+
+http://blogs.scientificamerican.com/at-scientific-american/a-manuscript-47-years-in-the-making/
+
+https://thefrailestthing.com/2016/05/19/maybe-the-kids-arent-alright/
+
+http://www.newyorker.com/magazine/2016/05/23/jonathan-franzen-goes-to-antarctica
+
 https://bryanalexander.org/2016/05/19/disciplining-educational-technology/
 
 https://mathbabe.org/2016/05/19/what-is-education-for/
