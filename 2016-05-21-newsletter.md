@@ -2,6 +2,22 @@
 
 http://blogs.scientificamerican.com/cross-check/dear-skeptics-bash-homeopathy-and-bigfoot-less-mammograms-and-war-more/
 
+http://text-patterns.thenewatlantis.com/2016/05/only-connecting.html
+
+http://www.rolinmoe.org/main/take-on-one-hit-wonders/
+
+http://kottke.org/16/05/hyper-reality
+
+https://www.washingtonpost.com/graphics/lifestyle/walk-this-way/
+
+https://hapgood.us/2016/05/19/de-legitimization/
+
+https://codeactsineducation.wordpress.com/2016/05/17/ai-cognitive-systems-education/
+
+http://xkcd.com/1683/
+
+http://www.nytimes.com/2016/05/20/t-magazine/my-10-favorite-books-bill-gates.html
+
 http://www.vox.com/2016/5/13/11670940/tesla-capital-glut
 
 http://blogs.scientificamerican.com/at-scientific-american/a-manuscript-47-years-in-the-making/
