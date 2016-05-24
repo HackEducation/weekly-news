@@ -4,6 +4,12 @@ https://medium.com/@tristanharris/how-technology-hijacks-peoples-minds-from-a-ma
 
 http://opencontent.org/blog/archives/4572
 
+http://www.slate.com/articles/news_and_politics/cover_story/2016/05/the_thriving_russian_black_market_in_dissertations_and_the_crusaders_fighting.html
+
+https://medium.com/@CRA1G/the-evolution-of-an-accidental-meme-ddc4e139e0e4#.kfvqjxu7b
+
+https://www.propublica.org/article/machine-bias-risk-assessments-in-criminal-sentencing
+
 http://www.theatlantic.com/technology/archive/2016/05/the-ascii-mystery-face/483698/
 
 https://www.propublica.org/article/machine-bias-risk-assessments-in-criminal-sentencing
@@ -24,3 +30,6 @@ http://thenewinquiry.com/essays/our-brand-could-be-your-crisis/
 
 https://www.cbinsights.com/blog/blockchain-startup-funding-q1-2016/
 
+http://adamcroom.com/2016/05/three-potentially-non-related-thoughts-on-media-and-identity/
+
+http://dmlcentral.net/childhood-pursuit-meaning-todays-connected-world/
