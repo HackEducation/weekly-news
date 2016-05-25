@@ -4,6 +4,14 @@ https://medium.com/@tristanharris/how-technology-hijacks-peoples-minds-from-a-ma
 
 http://opencontent.org/blog/archives/4572
 
+http://thebaffler.com/blog/blame-higher-ed
+
+https://hapgood.us/2016/05/24/communities-need-tools-to-protect-themselves-from-scale/
+
+https://www.graphite.org/privacy/blog/digital-redlining-access-privacy
+
+http://boingboing.net/2016/05/24/technologys-culture-of-com.html
+
 http://www.slate.com/articles/news_and_politics/cover_story/2016/05/the_thriving_russian_black_market_in_dissertations_and_the_crusaders_fighting.html
 
 https://medium.com/@CRA1G/the-evolution-of-an-accidental-meme-ddc4e139e0e4#.kfvqjxu7b
@@ -33,3 +41,5 @@ https://www.cbinsights.com/blog/blockchain-startup-funding-q1-2016/
 http://adamcroom.com/2016/05/three-potentially-non-related-thoughts-on-media-and-identity/
 
 http://dmlcentral.net/childhood-pursuit-meaning-todays-connected-world/
+
+http://www.newyorker.com/magazine/2016/05/30/the-new-activism-of-liberal-arts-colleges
