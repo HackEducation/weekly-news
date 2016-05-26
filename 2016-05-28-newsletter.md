@@ -2,6 +2,14 @@
 
 https://medium.com/@tristanharris/how-technology-hijacks-peoples-minds-from-a-magician-and-google-s-design-ethicist-56d62ef5edf3#.ycivjz8g8
 
+http://chronicle.com/blogs/linguafranca/2016/05/25/pivoting-to-rebalance/
+
+https://allmoocs.wordpress.com/2016/05/25/everything-schools-discussion-boards-on-pedagogy/
+
+(See the Motherboard piece on Uber)
+
+http://www.nytimes.com/2016/05/25/business/dealbook/peter-thiel-is-said-to-bankroll-hulk-hogans-suit-against-gawker.html
+
 http://opencontent.org/blog/archives/4572
 
 http://thebaffler.com/blog/blame-higher-ed
