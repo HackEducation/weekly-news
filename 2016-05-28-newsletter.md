@@ -12,6 +12,8 @@ http://www.nytimes.com/2016/05/25/business/dealbook/peter-thiel-is-said-to-bankr
 
 http://opencontent.org/blog/archives/4572
 
+http://brosch.blogspot.ie/2016/05/computer-use-reduces-average-grade-from.html (see also Jon Becker's piece)
+
 http://thebaffler.com/blog/blame-higher-ed
 
 https://hapgood.us/2016/05/24/communities-need-tools-to-protect-themselves-from-scale/
