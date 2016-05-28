@@ -14,8 +14,6 @@ http://blog.edtechie.net/mooc/whats-in-a-name/
 
 https://lareviewofbooks.org/article/elephant-seminar-room-phd-saved/
 
-
-
 https://medium.com/@tristanharris/how-technology-hijacks-peoples-minds-from-a-magician-and-google-s-design-ethicist-56d62ef5edf3#.ycivjz8g8
 
 http://chronicle.com/blogs/linguafranca/2016/05/25/pivoting-to-rebalance/
