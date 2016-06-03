@@ -8,6 +8,8 @@ http://www.motherjones.com/politics/2016/05/ethnic-studies-agents-of-change-docu
 
 http://www.nytimes.com/2016/06/02/business/elizabeth-holmes-founder-of-theranos-falls-from-highest-perch-off-forbes-list.html
 
+https://hapgood.us/2016/06/02/prism-a-proposal-for-a-choral-approach-to-oer/
+
 https://hapgood.us/2016/06/01/superpowers-take-time/
 
 http://www.theatlantic.com/technology/archive/2016/06/elegy-for-the-capital-i-internet/485120/
