@@ -1,5 +1,9 @@
 ## HEWN, No. 164
 
+https://theawl.com/lily-briscoes-painting-7ecac642750e#.bhj8qn7nu
+
+http://www.mcsweeneys.net/articles/stem-for-dogs
+
 http://nymag.com/selectall/2016/05/peter-thiels-familiar-villainy.html
 
 https://www.technologyreview.com/s/601447/monsanto-cultivates-a-rose-that-doesnt-wilt/
