@@ -2,6 +2,12 @@
 
 https://theawl.com/lily-briscoes-painting-7ecac642750e#.bhj8qn7nu
 
+https://www.buzzfeed.com/katiejmbaker/heres-the-powerful-letter-the-stanford-victim-read-to-her-ra?utm_term=.fl7Z0oxdp#.rhn47KxEO
+
+http://www.independent.co.uk/life-style/gadgets-and-tech/news/elon-musk-ai-artificial-intelligence-computer-simulation-gaming-virtual-reality-a7060941.html
+
+http://bavatuesdays.com/oer16-ahm-yer-da/
+
 http://www.mcsweeneys.net/articles/stem-for-dogs
 
 http://nymag.com/selectall/2016/05/peter-thiels-familiar-villainy.html
