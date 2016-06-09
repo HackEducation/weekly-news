@@ -17,3 +17,13 @@ https://www.insidehighered.com/blogs/technology-and-learning/why-i%E2%80%99m-not
 http://mian-wei.com/#/identity/ (Via Tim Maly)
 
 http://www.roughtype.com/?p=7042
+
+http://www.roughtype.com/?p=7075
+
+http://www.progressive.org/pss/what-%E2%80%98diversity%E2%80%99-really-means-teachers-color-and-education-reform
+
+https://www.robinsloan.com/notes/writing-with-the-machine/
+
+http://news.nationalpost.com/arts/books/book-reviews/televangelist-of-technology-kevin-kellys-divinely-guided-the-inevitable-is-irresponsible-at-best
+
+http://www.windley.com//archives/2016/06/fitbit_as_gizmo.shtml
