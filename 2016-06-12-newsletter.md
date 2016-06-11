@@ -29,3 +29,5 @@ https://www.robinsloan.com/notes/writing-with-the-machine/
 http://news.nationalpost.com/arts/books/book-reviews/televangelist-of-technology-kevin-kellys-divinely-guided-the-inevitable-is-irresponsible-at-best
 
 http://www.windley.com//archives/2016/06/fitbit_as_gizmo.shtml
+
+https://lareviewofbooks.org/article/rethinking-knowledge-internet-age/
