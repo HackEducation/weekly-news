@@ -31,3 +31,5 @@ http://news.nationalpost.com/arts/books/book-reviews/televangelist-of-technology
 http://www.windley.com//archives/2016/06/fitbit_as_gizmo.shtml
 
 https://lareviewofbooks.org/article/rethinking-knowledge-internet-age/
+
+http://davecormier.com/edblog/2016/06/11/content-is-a-print-concept/
