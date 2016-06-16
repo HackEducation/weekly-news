@@ -23,3 +23,9 @@ https://www.insidehighered.com/blogs/technology-and-learning/hamilton-musical-an
 http://francesbell.com/bellblog/possible-futures-for-innovation-and-technology-in-higher-education/
 
 https://hapgood.us/2016/06/14/predicting-the-future/
+
+http://www.pcworld.com/article/3084773/data-center-cloud/microsofts-project-bletchley-will-let-companies-add-middleware-to-blockchains.html
+
+http://hechingerreport.org/broke-away-endless-cycle-poverty-meth-jail-rural-kentucky/
+
+http://www.nationalgeographic.com/magazine/2016/07/forensic-science-justice-crime-evidence/
