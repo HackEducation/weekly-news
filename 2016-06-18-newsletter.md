@@ -6,6 +6,8 @@ http://www.theestablishment.co/2016/06/11/t-is-for-the-troubling-changes-on-sesa
 
 http://educationnext.org/what-hamilton-and-its-11-tonys-say-about-grit-and-privilege/ (see also Joshua Kim)
 
+http://arstechnica.com/science/2016/06/what-is-open-access-free-sharing-of-all-human-knowledge/
+
 http://gawker.com/now-peter-thiels-lawyer-wants-to-silence-reporting-on-t-1781918385
 
 http://www.nytimes.com/2016/06/17/opinion/why-linkedin-will-make-you-hate-microsoft-word.html
