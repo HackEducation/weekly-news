@@ -1,5 +1,9 @@
 ## HEWN, No. 166
 
+https://points.datasociety.net/what-sourcefeds-false-claim-teaches-us-about-google-autocomplete-7ac5d7ca00ed#.hjj5fcuv6
+
+http://www.theatlantic.com/health/archive/2016/06/live-like-youre-on-mushrooms/487286/
+
 https://www.statnews.com/2016/06/09/opioid-prescriptions-addiction/
 
 http://www.theestablishment.co/2016/06/11/t-is-for-the-troubling-changes-on-sesame-street/
