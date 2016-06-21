@@ -6,3 +6,20 @@ https://samkriss.wordpress.com/2016/06/18/sickness-health-death/
 
 https://medium.com/thinkpiece-dot-club/techs-scapegoat-complex-38a4bfb37f22#.raquz6elf
 
+https://larrycuban.wordpress.com/2016/06/20/draining-the-semantic-swamp-of-personalized-learning-a-view-from-silicon-valley-part-1/
+
+http://www.nytimes.com/2016/06/26/magazine/how-an-archive-of-the-internet-could-change-history.html
+
+https://psmag.com/theres-silicon-valley-and-not-silicon-valley-b010949e98e6
+
+http://boingboing.net/2016/06/20/vi-hart-on-shootings-stalking.html
+
+http://alex-reid.net/2016/06/writing-alone-on-the-social-web.html
+
+http://musicfordeckchairs.com/blog/2016/06/20/hovering/
+
+http://www.theatlantic.com/magazine/archive/2016/07/the-war-on-stupid-people/485618/
+
+http://www.lrb.co.uk/v38/n13/andrew-ohagan/the-satoshi-affair
+
+
