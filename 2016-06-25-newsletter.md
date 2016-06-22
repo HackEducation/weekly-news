@@ -22,4 +22,5 @@ http://www.theatlantic.com/magazine/archive/2016/07/the-war-on-stupid-people/485
 
 http://www.lrb.co.uk/v38/n13/andrew-ohagan/the-satoshi-affair
 
+http://www.nytimes.com/2016/06/22/arts/music/prince-death-judith-hill-plane.html
 
