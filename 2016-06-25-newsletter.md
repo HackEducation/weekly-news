@@ -10,6 +10,20 @@ https://larrycuban.wordpress.com/2016/06/20/draining-the-semantic-swamp-of-perso
 
 http://opencontent.org/blog/archives/4656
 
+https://www.buzzfeed.com/scaachikoul/rape-culture-is-surveillance-culture?utm_term=.mn7zkZGPo#.ev7meQGRZ
+
+http://www.theatlantic.com/technology/archive/2016/06/robocars-only/488129/
+
+http://blogs.swarthmore.edu/burke/blog/2016/06/23/fix-on-fail-i-everyday-arguments-for-pluralism-multiculturalism-and-diversity/
+
+https://larrycuban.wordpress.com/2016/06/23/part-2-draining-the-semantic-swamp-of-personalized-learning-a-view-from-silicon-valley/
+
+http://www.motherjones.com/politics/2016/06/cca-private-prisons-corrections-corporation-inmates-investigation-bauer
+
+https://www.buzzfeed.com/carolineodonovan/internal-uber-driver-pay-numbers?utm_term=.kqPzvQBEl#.jfAl6vjx2
+
+https://www.technologyreview.com/s/601763/how-the-new-science-of-computational-history-is-changing-the-study-of-the-past/
+
 http://www.masmithers.com/2016/06/why-university-learning-management-systems-are-the-temporary-classrooms-of-today/
 
 http://www.ethanzuckerman.com/blog/2016/06/22/the-worst-thing-i-read-this-year-and-what-it-taught-me-or-can-we-design-sociotechnical-systems-that-dont-suck/
