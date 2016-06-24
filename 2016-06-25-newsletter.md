@@ -12,6 +12,8 @@ https://larrycuban.wordpress.com/2016/06/20/draining-the-semantic-swamp-of-perso
 
 http://opencontent.org/blog/archives/4656
 
+https://tonyarcieri.com/a-tale-of-two-cryptocurrencies
+
 https://www.buzzfeed.com/scaachikoul/rape-culture-is-surveillance-culture?utm_term=.mn7zkZGPo#.ev7meQGRZ
 
 http://www.theatlantic.com/technology/archive/2016/06/robocars-only/488129/
