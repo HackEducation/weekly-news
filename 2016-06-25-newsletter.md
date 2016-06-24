@@ -1,5 +1,7 @@
 ## HEWN, No. 167
 
+http://fredrikdeboer.com/2016/06/24/welcome-to-the-future/
+
 http://www.bloomberg.com/view/articles/2016-06-17/blockchain-company-s-smart-contracts-were-dumb
 
 https://samkriss.wordpress.com/2016/06/18/sickness-health-death/
