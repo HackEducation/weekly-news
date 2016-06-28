@@ -7,3 +7,5 @@ https://bryanalexander.org/2016/06/27/towards-the-future-of-technology-for-educa
 https://www.theguardian.com/commentisfree/2016/jun/24/eu-vote-uk-diminished-politics-poisoned-racism
 
 http://chronicle.com/article/The-Ghost-Writer-in-the/236919
+
+http://thenewinquiry.com/essays/the-bengali-click-farmer/
