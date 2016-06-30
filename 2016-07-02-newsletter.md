@@ -4,6 +4,12 @@ http://francesbell.com/uncategorized/processing-our-grief-and-looking-to-the-fut
 
 https://bryanalexander.org/2016/06/27/towards-the-future-of-technology-for-education-my-nmc-keynote/
 
+http://nymag.com/thecut/2016/06/judith-butler-c-v-r.html
+
+https://www.insidehighered.com/blogs/just-visiting/why-cant-my-new-employees-write
+
+http://www.slate.com/articles/arts/cover_story/2016/06/oral_history_of_tony_kushner_s_play_angels_in_america.html
+
 https://www.theguardian.com/commentisfree/2016/jun/24/eu-vote-uk-diminished-politics-poisoned-racism
 
 http://chronicle.com/article/The-Ghost-Writer-in-the/236919
