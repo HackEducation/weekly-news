@@ -6,6 +6,8 @@ https://bryanalexander.org/2016/06/27/towards-the-future-of-technology-for-educa
 
 https://www.gofundme.com/plv048
 
+https://techcrunch.com/2016/06/28/the-technology-of-higher-education/
+
 https://www.participate.com/transcripts/educolor/d11e025d-fd3f-4172-b3fd-e04b6bf1ed83
 
 https://futureofprosperity.org/2016/06/30/from-pigeons-to-particles-fighting-air-pollution-with-technology/
