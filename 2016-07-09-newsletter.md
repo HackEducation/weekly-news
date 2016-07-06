@@ -15,3 +15,5 @@ http://items.ssrc.org/we-are-to-blame-for-the-state-of-social-science-research/
 http://fusion.net/story/320064/blockchain-patents/
 
 https://www.cbinsights.com/blog/financial-services-blockchain/
+
+(maybe introduce this with a response to Keith Devlin et al w/ their piece on adaptive learning.)
