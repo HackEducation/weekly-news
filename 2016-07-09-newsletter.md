@@ -2,6 +2,8 @@
 
 http://idlewords.com/talks/sase_panel.htm
 
+http://practicaltheory.org/blog/2016/07/07/for-white-teachers-in-the-time-of-blacklivesmatter/
+
 https://psmag.com/the-addicted-generation-92d7290bd171#.h4hsnvf0h
 
 http://www.telegraph.co.uk/women/life/how-my-dream-gap-year-in-africa-turned-into-a-nightmare/
@@ -9,6 +11,8 @@ http://www.telegraph.co.uk/women/life/how-my-dream-gap-year-in-africa-turned-int
 https://www.buzzfeed.com/patricksmith/the-woman-who-wrote-that-gap-year-in-africa-memoir-is-in-a-r?utm_term=.ubD7ZXPbM#.elQ25KnW0
 
 https://news.bitcoin.com/eu-end-anonymous-bitcoin/
+
+https://www.insidehighered.com/views/2016/07/08/lets-put-cameras-classroom-protect-professors-narcissistic-students-essay
 
 https://www.technologyreview.com/s/601848/data-mining-novels-reveals-the-six-basic-emotional-arcs-of-storytelling/
 
