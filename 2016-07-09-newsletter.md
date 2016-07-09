@@ -2,6 +2,12 @@
 
 http://idlewords.com/talks/sase_panel.htm
 
+https://marketbrief.edweek.org/marketplace-k-12/ed-tech-software-group-objects-to-messages-in-feds-goopen-campaign/
+
+http://imgur.com/a/YkDVQ
+
+http://www.assortedstuff.com/wasted-spaces/
+
 http://practicaltheory.org/blog/2016/07/07/for-white-teachers-in-the-time-of-blacklivesmatter/
 
 https://psmag.com/the-addicted-generation-92d7290bd171#.h4hsnvf0h
