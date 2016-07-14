@@ -13,3 +13,9 @@ https://techcrunch.com/2016/07/11/pokemon-go-wants-to-catch-almost-all-your-perm
 http://adamreeve.tumblr.com/post/147120922009/pokemon-go-is-a-huge-security-risk
 
 http://warontherocks.com/2016/07/digging-into-the-archeology-of-the-future/
+
+http://dmlcentral.net/secret-sauce-pokemon-go/
+
+http://blog.securitymouse.com/2016/07/quick-pokemongo-threat-modeling.html
+
+http://www.edugeekjournal.com/2016/07/12/personalized-learning-versus-dungeons-and-dragons/
