@@ -18,4 +18,8 @@ http://dmlcentral.net/secret-sauce-pokemon-go/
 
 http://blog.securitymouse.com/2016/07/quick-pokemongo-threat-modeling.html
 
+http://www.atlasobscura.com/articles/why-smart-clowns-immortalize-their-makeup-designs-on-ceramic-eggs
+
+http://www.miamiherald.com/news/nation-world/national/article89562297.html
+
 http://www.edugeekjournal.com/2016/07/12/personalized-learning-versus-dungeons-and-dragons/
