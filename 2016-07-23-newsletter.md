@@ -8,8 +8,20 @@ https://medium.com/identity-education-and-power/im-not-angry-at-you-3e7b567aaba8
 
 https://larrycuban.wordpress.com/2016/07/20/hype-on-steroids-self-driving-cars-and-school-technologies/
 
+https://newrepublic.com/article/135276/spiritualist-origins-ghostbusters
+
 http://kottke.org/16/07/why-is-peter-thiel-supporting-donald-trump
 
 http://www.elearnspace.org/blog/2016/07/20/adaptive-learners-not-adaptive-learning/
 
 http://motherboard.vice.com/read/ethereum-56m-hacker-the-dao-vitalik-buterin-hard-fork
+
+http://www.theatlantic.com/science/archive/2016/07/how-a-guy-from-a-montana-trailer-park-upturned-150-years-of-biology/491702/
+
+https://medium.com/welcome-to-the-scream-room/im-with-the-banned-8d1b6e0b2932#.mvava2jad
+
+http://talkingpointsmemo.com/features/privatization/three/
+
+http://www.newyorker.com/magazine/2016/07/25/the-new-meaning-of-whiteness
+
+http://www.nytimes.com/2016/07/22/technology/the-long-final-goodbye-of-the-vcr.html
