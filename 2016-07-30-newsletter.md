@@ -6,6 +6,14 @@ http://bb9.berlinbiennale.de/all-problems-can-be-illuminated-not-all-problems-ca
 
 http://www.bloomberg.com/features/2016-richard-berk-future-crime/
 
+http://www.nytimes.com/2016/07/27/opinion/the-trumpian-dreams-of-silicon-valley.html
+
+http://musicfordeckchairs.com/blog/2016/07/27/what-you-cannot-accept/
+
+http://www.flashforwardpod.com/2016/07/26/episode-18-revenge-of-the-retweet/
+
+http://paleofuture.gizmodo.com/ray-kurzweil-is-talking-bullshit-again-1784232521
+
 http://tachesdesens.blogspot.com.eg/2016/07/fire-raisers.html?m=1
 
 http://www.digitalpedagogylab.com/the-place-of-education/
