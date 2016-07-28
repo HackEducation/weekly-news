@@ -24,6 +24,8 @@ https://www.buzzfeed.com/katherinemiller/how-donald-trump-broke-the-conservative
 
 https://www.thestar.com/news/gta/2016/07/23/renowned-university-of-toronto-scientist-ursula-franklin-dead-at-94.html
 
+https://twitter.com/DPRK_News/status/758409111025451008
+
 http://www.businessinsider.com/oculus-gives-all-its-employees-ready-player-one-2016-7
 
 https://www.technologyreview.com/s/602025/how-vector-space-mathematics-reveals-the-hidden-sexism-in-language/
