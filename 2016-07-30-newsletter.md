@@ -24,6 +24,14 @@ https://www.buzzfeed.com/katherinemiller/how-donald-trump-broke-the-conservative
 
 https://www.thestar.com/news/gta/2016/07/23/renowned-university-of-toronto-scientist-ursula-franklin-dead-at-94.html
 
+http://www.businessinsider.com/oculus-gives-all-its-employees-ready-player-one-2016-7
+
+https://www.technologyreview.com/s/602025/how-vector-space-mathematics-reveals-the-hidden-sexism-in-language/
+
+http://climateerinvest.blogspot.co.uk/2016/07/eu-plans-database-of-bitcoin-users-with.html
+
+https://theconversation.com/technology-changes-how-authors-write-but-the-big-impact-isnt-on-their-style-61955
+
 http://towcenter.org/on-the-ethics-of-data-driven-journalism-of-fact-friction-and-public-records-in-a-more-transparent-age/
 
 http://theory.cribchronicles.com/2016/07/24/the-spectacle/
