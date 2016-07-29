@@ -2,6 +2,10 @@
 
 https://tressiemc.com/2016/07/23/when-is-a-real-college-a-real-college/
 
+http://www.theverge.com/2016/7/28/12312538/werner-herzog-interview-masterclass-lo-and-behold
+
+http://sunlightfoundation.com/blog/2016/07/28/on-weaponized-transparency/
+
 http://bb9.berlinbiennale.de/all-problems-can-be-illuminated-not-all-problems-can-be-solved/
 
 http://www.bloomberg.com/features/2016-richard-berk-future-crime/
