@@ -49,3 +49,5 @@ https://motherboard.vice.com/read/all-signs-point-to-russia-being-behind-the-dnc
 https://modelviewculture.com/pieces/building-a-cultural-dialogue-around-the-permanent-blockchain-web
 
 http://www.nytimes.com/2016/07/25/business/sponsored-content-takes-larger-role-in-media-companies.html
+
+http://motherboard.vice.com/read/this-guy-is-the-lance-armstrong-of-pigeon-racing-eamon-kelly-cheating
