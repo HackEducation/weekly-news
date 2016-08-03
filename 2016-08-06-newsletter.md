@@ -15,3 +15,5 @@ http://musicfordeckchairs.com/blog/2016/08/02/chorus-of-voices/
 http://www.boundary2.org/2016/08/the-function-of-videogame-criticism/
 
 http://boingboing.net/2016/08/02/watch-this-helpful-kids-guid.html
+
+https://twitter.com/dwr/status/760513408429023232
