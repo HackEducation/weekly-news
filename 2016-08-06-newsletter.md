@@ -8,6 +8,10 @@ http://hechingerreport.org/how-education-reform-exacerbates-sexism/
 
 https://timklapdor.wordpress.com/2016/08/01/temporary-permanence/
 
+http://www.bloomberg.com/news/articles/2016-08-04/food-startup-ran-undercover-project-to-buy-up-its-own-products
+
+http://www.glamour.com/story/glamour-exclusive-president-barack-obama-says-this-is-what-a-feminist-looks-like
+
 http://www.digitalpedagogylab.com/hybridped/in-the-clutches-of-algorithms/
 
 http://musicfordeckchairs.com/blog/2016/08/02/chorus-of-voices/
