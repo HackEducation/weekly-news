@@ -13,3 +13,7 @@ http://followersoftheapocalyp.se/a-meander-into-institutional-designation/
 http://fredrikdeboer.com/2016/08/10/teachers-are-laborers-not-merchants/
 
 https://lareviewofbooks.org/article/digital-humanities-interview-ted-underwood/
+
+https://medium.com/@anildash/the-lost-infrastructure-of-social-media-d2b95662ccd3#.p9w9lfxp4
+
+http://musicfordeckchairs.com/blog/2016/08/12/usnot-us/
