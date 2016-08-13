@@ -17,3 +17,5 @@ https://lareviewofbooks.org/article/digital-humanities-interview-ted-underwood/
 https://medium.com/@anildash/the-lost-infrastructure-of-social-media-d2b95662ccd3#.p9w9lfxp4
 
 http://musicfordeckchairs.com/blog/2016/08/12/usnot-us/
+
+http://www.contrivers.org/articles/8/
