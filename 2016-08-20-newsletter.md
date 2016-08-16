@@ -14,6 +14,12 @@ http://www.boundary2.org/2016/08/elizabeth-losh-hiding-inside-the-magic-circle-g
 
 http://hyperallergic.com/313435/an-illustrated-guide-to-guy-debords-the-society-of-the-spectacle/
 
+http://www.atlasobscura.com/articles/meet-the-cuban-expatriate-who-created-spy-vs-spy
+
+https://thesocietypages.org/cyborgology/2016/08/13/mimesis-violence-and-facebook-peter-thiels-french-connection-full-essay/
+
+https://thesocietypages.org/cyborgology/2016/08/13/mimesis-violence-and-facebook-peter-thiels-french-connection-full-essay/
+
 
 
 
