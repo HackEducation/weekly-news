@@ -6,6 +6,8 @@ https://thesocietypages.org/cyborgology/2016/08/16/the-worry-piece/
 
 http://www.theatlantic.com/technology/archive/2016/08/peter-thiels-self-serving-new-york-times-column/496133/
 
+http://www.paperdarts.org/literary-magazine/2016/8/13/the-bearded-lady
+
 http://www.atlasobscura.com/articles/the-time-that-the-us-turned-an-olympic-village-into-a-prison
 
 https://medium.com/@kristicoulter/https-medium-com-kristicoulter-the-24-hour-woman-3425ca5be19f#.ygkr8ak78
