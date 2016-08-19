@@ -4,6 +4,8 @@ https://medium.com/@girlziplocked/on-the-ethics-of-dumpsterfires-d89f2819928f#.7
 
 https://thesocietypages.org/cyborgology/2016/08/16/the-worry-piece/
 
+https://modelviewculture.com/news/who-is-verified-on-twitter-and-why-does-it-matter
+
 http://www.theatlantic.com/technology/archive/2016/08/peter-thiels-self-serving-new-york-times-column/496133/
 
 http://www.paperdarts.org/literary-magazine/2016/8/13/the-bearded-lady
