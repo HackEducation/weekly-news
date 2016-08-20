@@ -1,5 +1,7 @@
 ## HEWN, No. 175
 
+http://nymag.com/selectall/2016/08/did-i-kill-gawker.html
+
 https://medium.com/@girlziplocked/on-the-ethics-of-dumpsterfires-d89f2819928f#.7zvhbwoqg
 
 https://thesocietypages.org/cyborgology/2016/08/16/the-worry-piece/
