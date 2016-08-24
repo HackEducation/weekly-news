@@ -14,4 +14,10 @@ http://gawker.com/gawker-was-murdered-by-gaslight-1785456581
 
 https://www.wired.com/2016/08/psychobook/ (reference Evan K's work -- it's much better)
 
+http://hackeducation.com/2016/08/23/domains
 
+https://medium.com/@rachelnabors/wtfuk-73009d5623b4#.ondfk5409
+
+https://www.insidehighered.com/blogs/library-babel-fish/woes-wikipedia
+
+https://hapgood.us/2016/08/23/beyond-the-export-model/
