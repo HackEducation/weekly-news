@@ -20,4 +20,10 @@ https://medium.com/@rachelnabors/wtfuk-73009d5623b4#.ondfk5409
 
 https://www.insidehighered.com/blogs/library-babel-fish/woes-wikipedia
 
+http://salvage.zone/in-print/technically-female-women-machines-and-hyperemployment/
+
+https://lareviewofbooks.org/article/phd-students-irrational/
+
+http://www.vanityfair.com/news/2016/08/peter-thiels-foundation-funds-a-start-up-to-bet-on-other-lawsuits
+
 https://hapgood.us/2016/08/23/beyond-the-export-model/
