@@ -4,6 +4,8 @@ https://howwegettonext.com/what-well-teach-at-the-first-school-on-mars-fb4bcd30d
 
 http://motherboard.vice.com/read/no-mans-sky-review
 
+https://hapgood.us/2016/08/26/the-dwindling-promise-of-social-media/
+
 http://www.nakedcapitalism.com/2016/08/credentialism-and-corruption-vile-college-presidents-edition.html
 
 http://boingboing.net/2016/08/18/the-accidental-origin-of-the-h.html
