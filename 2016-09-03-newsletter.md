@@ -13,3 +13,5 @@ https://www.insidehighered.com/blogs/higher-ed-gamma/it-possible-embrace-%E2%80%
 https://www.insidehighered.com/blogs/technology-and-learning/5-reasons-equip
 
 http://www.newstatesman.com/politics/health/2016/08/fitter-dumber-more-productive
+
+http://giphy.com/gifs/gene-wilder-yLwPOHq1zRvpe
