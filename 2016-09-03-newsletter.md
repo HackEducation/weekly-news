@@ -15,3 +15,17 @@ https://www.insidehighered.com/blogs/technology-and-learning/5-reasons-equip
 http://www.newstatesman.com/politics/health/2016/08/fitter-dumber-more-productive
 
 http://giphy.com/gifs/gene-wilder-yLwPOHq1zRvpe
+
+http://www.theregister.co.uk/2016/08/30/seti_institute_damps_down_wow_signal_report_from_russia/
+
+http://www.reuters.com/article/us-facebook-zuckerberg-idUSKCN1141WN
+
+http://fusion.net/story/339018/facebook-psychiatrist-privacy-problems/
+
+https://techcrunch.com/2016/08/29/mark-zuckerberg-meets-pope-francis-gives-him-a-drone/
+
+https://www.theguardian.com/technology/2016/aug/29/facebook-fires-trending-topics-team-algorithm
+
+https://labs.rs/en/colonization-with-love/
+
+http://reallifemag.com/broken-windows-broken-code/
