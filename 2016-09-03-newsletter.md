@@ -1,5 +1,11 @@
 ## HEWN, No. 177
 
+http://dailyimprovisation.blogspot.ca/2016/08/the-birds-of-appetite-spiritual-decline.html
+
+http://www.roughtype.com/?p=7245
+
+http://www.theatlantic.com/technology/archive/2016/08/did-facebook-defame-megyn-kelly/498080/
+
 http://www.ft.com/cms/s/2/50bb4830-6a4c-11e6-ae5b-a7cc5dd5a28c.html
 
 http://moreorlessbunk.net/technology/i-dont-need-your-civil-war/
