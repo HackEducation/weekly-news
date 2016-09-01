@@ -12,6 +12,8 @@ http://moreorlessbunk.net/technology/i-dont-need-your-civil-war/
 
 https://medium.com/@thejlv/colin-kaepernick-and-what-it-means-to-be-patriotic-in-schools-e6d274aa6d0f#.haistc5r9
 
+http://motherboard.vice.com/read/exemption-packet
+
 https://www.insidehighered.com/blogs/just-visiting/life-doesnt-have-safe-spaces-bullst
 
 https://www.insidehighered.com/blogs/higher-ed-gamma/it-possible-embrace-%E2%80%9Cuber-u%E2%80%9D
