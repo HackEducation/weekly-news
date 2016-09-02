@@ -4,6 +4,12 @@ http://dailyimprovisation.blogspot.ca/2016/08/the-birds-of-appetite-spiritual-de
 
 http://www.roughtype.com/?p=7245
 
+http://www.gq.com/story/oral-history-we-built-this-city-worst-song-of-all-time
+
+http://theoatmeal.com/comics/unhappy
+
+http://www.chicagotribune.com/news/opinion/commentary/ct-donald-trump-losing-garrison-keillor-20160831-story.html
+
 http://www.theatlantic.com/technology/archive/2016/08/did-facebook-defame-megyn-kelly/498080/
 
 http://www.ft.com/cms/s/2/50bb4830-6a4c-11e6-ae5b-a7cc5dd5a28c.html
