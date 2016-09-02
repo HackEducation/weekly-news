@@ -4,6 +4,8 @@ http://dailyimprovisation.blogspot.ca/2016/08/the-birds-of-appetite-spiritual-de
 
 http://www.roughtype.com/?p=7245
 
+http://lisahistory.net/wordpress/2016/08/grade-work-not-students/
+
 http://www.gq.com/story/oral-history-we-built-this-city-worst-song-of-all-time
 
 http://theoatmeal.com/comics/unhappy
