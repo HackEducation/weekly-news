@@ -10,6 +10,10 @@ http://www.gq.com/story/oral-history-we-built-this-city-worst-song-of-all-time
 
 http://theoatmeal.com/comics/unhappy
 
+http://news.nationalgeographic.com/news/2013/10/131008-women-handprints-oldest-neolithic-cave-art/
+
+http://www.eater.com/2016/9/2/12771718/gummy-candy-history
+
 http://www.chicagotribune.com/news/opinion/commentary/ct-donald-trump-losing-garrison-keillor-20160831-story.html
 
 http://www.theatlantic.com/technology/archive/2016/08/did-facebook-defame-megyn-kelly/498080/
