@@ -11,3 +11,11 @@ http://www.nytimes.com/2016/09/04/fashion/modern-love-pregnancy-miscarriage-app-
 http://www.latimes.com/projects/la-me-framed/#chapter1
 
 http://www.roughtype.com/?p=7277
+
+http://bavatuesdays.com/citizen-exs-cultural-and-political-history-of-top-level-domains/
+
+https://www.mcsweeneys.net/articles/welcome-to-our-university-were-delighted-to-have-you-but-if-you-think-were-going-to-cancel-the-ku-klux-klan-rally-youve-got-another-think-coming
+
+http://musicfordeckchairs.com/blog/2016/09/06/for-now-our-own/
+
+http://www.newyorker.com/magazine/2016/09/12/pete-wells-the-new-york-times-restaurant-critic
