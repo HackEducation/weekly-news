@@ -18,4 +18,12 @@ https://www.mcsweeneys.net/articles/welcome-to-our-university-were-delighted-to-
 
 http://musicfordeckchairs.com/blog/2016/09/06/for-now-our-own/
 
+https://twitter.com/thinkpiecebot/status/773267635970666498
+
+http://motherboard.vice.com/read/free-isnt-freedom-epstein-essay
+
+http://www.roughtype.com/?p=7285
+
+https://talkpoverty.org/2016/09/06/internet-doesnt-reach/
+
 http://www.newyorker.com/magazine/2016/09/12/pete-wells-the-new-york-times-restaurant-critic
