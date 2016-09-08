@@ -1,5 +1,11 @@
 ## HEWN, No. 178
 
+http://www.digitalpedagogylab.com/hybridped/disowning-tech-ensuring-value-agency-moment-interface/
+
+https://www.thenation.com/article/teachers-are-working-for-uber-just-to-keep-a-foothold-in-the-middle-class/
+
+http://www.washingtonpost.com/sf/style/wp/2016/09/06/2016/09/06/the-sext-was-meant-to-impress-him-instead-it-nearly-destroyed-her/
+
 https://hapgood.us/2016/09/04/how-document-decomposition-helps-overcome-bias/
 
 http://onlinelibrary.wiley.com/doi/10.1111/jcc4.12164/abstract
