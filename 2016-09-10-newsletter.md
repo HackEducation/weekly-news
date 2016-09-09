@@ -1,5 +1,9 @@
 ## HEWN, No. 178
 
+http://boingboing.net/2016/09/09/documentary-on-the-past-prese.html
+
+http://nymag.com/daily/intelligencer/2016/09/the-sandy-hook-hoax.html
+
 http://www.digitalpedagogylab.com/hybridped/disowning-tech-ensuring-value-agency-moment-interface/
 
 https://www.thenation.com/article/teachers-are-working-for-uber-just-to-keep-a-foothold-in-the-middle-class/
