@@ -8,5 +8,8 @@ http://publicdomainreview.org/collections/dr-julius-neubronners-miniature-pigeon
 
 https://lareviewofbooks.org/article/will-heal-doctors/#
 
-https://medium.com/@katecrawford/artificial-intelligence-is-hard-to-see-a71e74f386db#.gdodx8mk4
+http://xkcd.com/1732/
 
+https://feministfrequency.com/video/the-revolutionary-life-of-emma-goldman/
+
+https://medium.com/@katecrawford/artificial-intelligence-is-hard-to-see-a71e74f386db#.gdodx8mk4
