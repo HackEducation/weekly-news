@@ -2,6 +2,12 @@
 
 http://www.roughtype.com/?p=7243
 
+http://halfanhour.blogspot.com/2016/09/institutions-and-openness.html
+
+http://edutechnicalities.com/articles/the-innovation-conundrum-talk-at-boston-university/
+
+https://www.bloomberg.com/features/2016-america-divided/milo-yiannopoulos/
+
 https://www.washingtonpost.com/national/health-science/skeleton-of-teenage-girl-confirms-cannibalism-at-jamestown-colony/2013/05/01/5af5b474-b1dc-11e2-9a98-4be1688d7d84_story.html
 
 http://www.atlasobscura.com/articles/the-doomed-mouse-utopia-that-inspired-the-rats-of-nimh
