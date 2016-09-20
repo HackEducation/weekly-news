@@ -13,3 +13,17 @@ https://nplusonemag.com/issue-19/politics/the-accidental-neoliberal/
 https://blog.jonudell.net/2016/09/18/what-i-learned-while-building-an-app-for-the-canvas-learning-management-system/
 
 https://www.wired.com/2016/08/the-tetris-effect-excerpt/
+
+https://thefrailestthing.com/2016/09/19/in-defense-of-memory/
+
+http://www.popsci.com/pigeons-reading-study
+
+http://datasociety.net/blog/2016/09/14/data-tech-learning/
+
+http://reallifemag.com/grave-sight/
+
+https://www.jacobinmag.com/2016/09/big-data-algorithms-math-facebook-advertisement-marketing/
+
+https://readonlymemory.vg/the-making-of-lemmings/
+
+https://medium.com/enabling-connected-learning/accountability-calling-education-to-a-count-6ac173b44194#.m8kab2lon
