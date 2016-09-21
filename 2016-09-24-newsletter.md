@@ -1,5 +1,13 @@
 ## HEWN, No. 180
 
+https://www.buzzfeed.com/annehelenpetersen/brangelina-is-dead-long-live-angelina?utm_term=.qo0w0yoWZ#.qhelovAPg
+
+http://cogdogblog.com/2016/09/not-your-mothers-father-of-distance-education/
+
+http://www.versobooks.com/blogs/2842-for-alain-badiou-pokemon-go-is-the-corruption-of-corruption
+
+http://nymag.com/selectall/2016/09/andrew-sullivan-technology-almost-killed-me.html
+
 http://www.tonybates.ca/2016/09/17/who-are-the-founding-fathers-of-distance-education/
 
 http://www.downes.ca/cgi-bin/page.cgi?post=65803
