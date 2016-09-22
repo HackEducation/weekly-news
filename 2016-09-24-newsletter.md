@@ -1,5 +1,15 @@
 ## HEWN, No. 180
 
+https://academeblog.org/2016/09/20/universities-and-surveillance-capitalism/
+
+my pigeon keynote
+
+https://www.jacobinmag.com/2016/09/mr-robot-sam-esmail-fsociety-rami-malek/
+
+http://www.e-flux.com/journal/75/67133/abnormal-encephalization-in-the-age-of-machine-learning/
+
+http://umwdtlt.com/a-brief-history-of-domain-of-ones-own-part-1/
+
 https://www.buzzfeed.com/annehelenpetersen/brangelina-is-dead-long-live-angelina?utm_term=.qo0w0yoWZ#.qhelovAPg
 
 http://cogdogblog.com/2016/09/not-your-mothers-father-of-distance-education/
