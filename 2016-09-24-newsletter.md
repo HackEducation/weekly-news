@@ -2,7 +2,17 @@
 
 https://academeblog.org/2016/09/20/universities-and-surveillance-capitalism/
 
-my pigeon keynote
+http://hackeducation.com/2016/09/22/pigeon
+
+http://www.wsj.com/articles/facebook-overestimated-key-video-metric-for-two-years-1474586951
+
+http://blog.edtechie.net/general-education/open-education-and-the-unenlightenment/
+
+https://www.buzzfeed.com/charliewarzel/after-reporting-abuse-many-twitter-users-hear-silence-or-wor?bftwnews=&utm_term=.wbVQLZR9b#.am84gVkvO
+
+http://www.thedailybeast.com/articles/2016/09/22/palmer-luckey-the-facebook-billionaire-secretly-funding-trump-s-meme-machine.html?via=twitter_page
+
+http://trib.com/news/local/casper/a-casper-institution-since-the-s-the-world-famous-wonder/article_feadf6ae-23d4-5dbc-8a08-492efe24de47.html
 
 https://www.jacobinmag.com/2016/09/mr-robot-sam-esmail-fsociety-rami-malek/
 
