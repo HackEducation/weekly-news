@@ -1,5 +1,11 @@
 ## HEWN, No. 180
 
+https://aeon.co/ideas/coding-is-not-fun-it-s-technically-and-ethically-complex
+
+http://www.theverge.com/2016/9/23/13033268/palmer-luckey-trump-meme-fund-oculus-developers-respond
+
+http://www.theatlantic.com/technology/archive/2016/09/donald-trump-is-a-1960s-technology-critics-worst-nightmare/501230/
+
 https://academeblog.org/2016/09/20/universities-and-surveillance-capitalism/
 
 http://hackeducation.com/2016/09/22/pigeon
