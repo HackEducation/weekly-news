@@ -1,5 +1,17 @@
 ## HEWN, No. 181
 
+http://dismagazine.com/discussion/73298/sara-m-watson-metaphors-of-big-data/
+
+http://www.atlasobscura.com/articles/the-strange-victorian-computer-that-generated-latin-verse
+
+https://www.buzzfeed.com/stephaniemlee/whatsapp-doc?utm_term=.foElezVdg#.abnwVnobG
+
+http://hackeducation.com/2016/09/28/discipline
+
+https://www.washingtonpost.com/news/act-four/wp/2016/09/28/five-questions-we-need-to-answer-before-colonizing-mars/
+
+http://www.hollywoodreporter.com/news/bunker-builders-anticipate-lucrative-trumpocalypse-932748
+
 http://qz.com/789889/a-universal-basic-income-could-wind-up-hurting-the-poor-and-helping-the-rich/
 
 http://amormundi.blogspot.com/2016/09/siren-songs-of-fauxvolutionary-futurism.html?spref=tw
