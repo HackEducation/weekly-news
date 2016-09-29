@@ -1,5 +1,7 @@
 ## HEWN, No. 181
 
+http://blogs.wsj.com/experts/2016/09/28/why-women-in-tech-might-consider-just-using-their-initials-online/
+
 http://dismagazine.com/discussion/73298/sara-m-watson-metaphors-of-big-data/
 
 http://www.atlasobscura.com/articles/the-strange-victorian-computer-that-generated-latin-verse
