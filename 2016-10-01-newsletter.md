@@ -2,6 +2,16 @@
 
 http://blogs.wsj.com/experts/2016/09/28/why-women-in-tech-might-consider-just-using-their-initials-online/
 
+https://onefleweast.net/2016/09/29/meaning-the-software-a-review-of-david-golumbias-the-politics-of-bitcoin/
+
+http://nodepression.com/article/music-confounds-machines
+
+http://lisahistory.net/wordpress/2016/09/the-lms-and-the-end-of-information-literacy/
+
+http://www.nytimes.com/2016/09/28/books/hitler-ascent-volker-ullrich.html
+
+https://www.thenation.com/article/everything-is-interesting/
+
 http://dismagazine.com/discussion/73298/sara-m-watson-metaphors-of-big-data/
 
 http://www.atlasobscura.com/articles/the-strange-victorian-computer-that-generated-latin-verse
