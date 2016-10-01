@@ -1,5 +1,11 @@
 ## HEWN, No. 181
 
+http://thebaffler.com/blog/gladwell-podcast-miller
+
+http://sarahwerner.net/blog/2016/09/researching-while-unaffiliated/
+
+http://sadchairsofacademia.tumblr.com/?og=1
+
 http://blogs.wsj.com/experts/2016/09/28/why-women-in-tech-might-consider-just-using-their-initials-online/
 
 https://onefleweast.net/2016/09/29/meaning-the-software-a-review-of-david-golumbias-the-politics-of-bitcoin/
