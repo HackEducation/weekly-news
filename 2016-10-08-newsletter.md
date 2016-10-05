@@ -4,6 +4,20 @@ http://blogs.swarthmore.edu/burke/blog/2016/10/04/one-of-those-years/
 
 http://fusion.net/story/339019/protests-that-cant-be-stopped/
 
+https://timklapdor.wordpress.com/2016/10/05/ed-tech-as-a-discipline/
+
+https://www.propublica.org/article/breaking-the-black-box-when-algorithms-decide-what-you-pay
+
+http://text-patterns.thenewatlantis.com/2016/10/mary-midgley-and-cooperative-thinking.html
+
+http://www.plannedobsolescence.net/generous-thinking-introduction/
+
+http://www.nytimes.com/2016/10/09/magazine/why-are-politicians-so-obsessed-with-manufacturing.html?_r=0
+
+https://www.dissentmagazine.org/article/nancy-fraser-interview-capitalism-crisis-of-care
+
+http://www.cjr.org/tow_center_reports/constructive_technology_criticism.php
+
 http://www.vox.com/new-money/2016/10/3/13076152/silicon-valley-disruption-slow
 
 http://www.businessinsider.com/tech-billionaires-want-to-break-humans-out-of-a-computer-simulation-2016-10
