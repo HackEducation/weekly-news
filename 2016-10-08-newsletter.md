@@ -1,5 +1,11 @@
 ## HEWN, No. 182
 
+http://qz.com/se/map-of-the-internet/
+
+http://francesbell.com/bellblog/is-education-technology-a-discipline-and-does-it-matter/
+
+https://timklapdor.wordpress.com/2016/10/05/ed-tech-as-a-discipline/
+
 http://blogs.swarthmore.edu/burke/blog/2016/10/04/one-of-those-years/
 
 http://fusion.net/story/339019/protests-that-cant-be-stopped/
