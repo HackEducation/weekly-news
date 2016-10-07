@@ -2,6 +2,12 @@
 
 http://qz.com/se/map-of-the-internet/
 
+http://www.theverge.com/a/luka-artificial-intelligence-memorial-roman-mazurenko-bot
+
+https://thesocietypages.org/cyborgology/2016/10/06/on-medial-desire-or-that-philip-k-dick-title-everyone-uses/
+
+http://www.vox.com/culture/2016/10/2/12818984/junot-diaz-in-conversation
+
 http://francesbell.com/bellblog/is-education-technology-a-discipline-and-does-it-matter/
 
 https://timklapdor.wordpress.com/2016/10/05/ed-tech-as-a-discipline/
