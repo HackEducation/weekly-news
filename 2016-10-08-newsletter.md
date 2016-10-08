@@ -8,6 +8,8 @@ https://thesocietypages.org/cyborgology/2016/10/06/on-medial-desire-or-that-phil
 
 http://www.vox.com/culture/2016/10/2/12818984/junot-diaz-in-conversation
 
+http://nautil.us/issue/40/learning/a-nonlinear-history-of-time-travel
+
 http://francesbell.com/bellblog/is-education-technology-a-discipline-and-does-it-matter/
 
 https://timklapdor.wordpress.com/2016/10/05/ed-tech-as-a-discipline/
