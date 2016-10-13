@@ -1,5 +1,19 @@
 ## HEWN, No. 183
 
+http://tvo.org/article/current-affairs/shared-values/-can-racism-be-treated-the-same-way-as-addiction
+
+https://www.insidehighered.com/blogs/university-venus/tactical-twitter
+
+https://googleguacamole.wordpress.com/2016/10/12/wcet-2016/
+
+http://www.theatlantic.com/magazine/archive/2016/11/the-binge-breaker/501122/
+
+http://www.nytimes.com/2016/10/16/magazine/generation-adderall-addiction.html
+
+http://www.theatlantic.com/magazine/archive/2016/11/war-goes-viral/501125/
+
+https://medium.com/@shemag8/fuck-you-startup-world-ab6cc72fad0e#.9ckkjf3j6
+
 https://www.theguardian.com/technology/2016/oct/12/english-man-spends-11-hours-trying-to-make-cup-of-tea-with-wi-fi-kettle
 
 https://www.propublica.org/article/breaking-the-black-box-when-machines-learn-by-experimenting-on-us
