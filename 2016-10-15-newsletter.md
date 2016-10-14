@@ -2,6 +2,16 @@
 
 http://tvo.org/article/current-affairs/shared-values/-can-racism-be-treated-the-same-way-as-addiction
 
+http://alex-reid.net/2016/10/designing-rhetorical-technologies-of-deliberation.html
+
+http://www.nytimes.com/2016/10/14/opinion/bob-dylan-master-of-change.html
+
+http://www.theatlantic.com/technology/archive/2016/10/silicon-valley-is-obsessed-with-a-false-notion-of-reality/503963/
+
+http://www.theatlantic.com/technology/archive/2016/10/theres-no-erasing-the-chalkboard/503975/
+
+https://www.theguardian.com/technology/2016/oct/11/crash-how-computers-are-setting-us-up-disaster
+
 https://www.insidehighered.com/blogs/university-venus/tactical-twitter
 
 https://googleguacamole.wordpress.com/2016/10/12/wcet-2016/
