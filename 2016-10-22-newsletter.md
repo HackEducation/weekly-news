@@ -17,3 +17,5 @@ http://www.theatlantic.com/science/archive/2016/10/trump-the-first-demagogue-of-
 http://thebaffler.com/blog/fear-feminist-future-laurie-penny
 
 https://hbr.org/2016/10/theranos-and-the-dark-side-of-storytelling
+
+https://www.buzzfeed.com/craigsilverman/partisan-fb-pages-analysis?utm_term=.mn7zkZGPo#.hhD3dwpy5
