@@ -18,4 +18,6 @@ http://thebaffler.com/blog/fear-feminist-future-laurie-penny
 
 https://hbr.org/2016/10/theranos-and-the-dark-side-of-storytelling
 
+https://theintercept.com/2016/09/24/a-walking-tour-of-new-yorks-massive-surveillance-network/
+
 https://www.buzzfeed.com/craigsilverman/partisan-fb-pages-analysis?utm_term=.mn7zkZGPo#.hhD3dwpy5
