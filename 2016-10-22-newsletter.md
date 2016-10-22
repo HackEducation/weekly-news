@@ -2,6 +2,8 @@
 
 https://blog.longreads.com/2016/09/14/stat/
 
+http://edushyster.com/joy-is-the-new-grit/
+
 https://medium.com/@rortybomb/would-progressive-economics-win-over-trumps-white-working-class-voters-43f78cc7f005#.4o1mmn89j
 
 https://aeon.co/essays/how-the-soviets-invented-the-internet-and-why-it-didn-t-work
