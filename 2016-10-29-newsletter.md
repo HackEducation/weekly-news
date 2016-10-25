@@ -8,3 +8,6 @@ https://aeon.co/essays/if-the-internet-is-addictive-why-don-t-we-regulate-it
 
 https://mic.com/articles/157415/my-first-virtual-reality-groping-sexual-assault-in-vr-harassment-in-tech-jordan-belamire#.YnS5x6g2a
 
+http://davecormier.com/edblog/2016/10/24/planning-for-educational-change-what-is-education-for/
+
+http://nowviskie.org/2016/alternate-futures-usable-pasts/
