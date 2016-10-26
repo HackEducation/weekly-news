@@ -11,3 +11,9 @@ https://mic.com/articles/157415/my-first-virtual-reality-groping-sexual-assault-
 http://davecormier.com/edblog/2016/10/24/planning-for-educational-change-what-is-education-for/
 
 http://nowviskie.org/2016/alternate-futures-usable-pasts/
+
+http://reallifemag.com/fierce-attachments/
+
+https://theawl.com/just-because-youre-cynical-doesn-t-mean-you-re-wrong-2ef4b8cff128#.1qmk00oz5
+
+https://hapgood.us/2016/10/25/neoliberalism-and-textbooks-i-promise-this-is-better-than-it-sounds/
