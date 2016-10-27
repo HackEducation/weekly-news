@@ -2,6 +2,16 @@
 
 https://www.buzzfeed.com/jamesball/heres-what-i-learned-about-julian-assange
 
+http://nowviskie.org/2016/speculative-collections/
+
+http://blog.edtechie.net/higher-ed/lets-think-inside-the-box/
+
+https://www.buzzfeed.com/annehelenpetersen/dad-vs-the-volcano?utm_term=.jooBO2b6X#.elQ25KnW0
+
+https://www.buzzfeed.com/craigsilverman/can-facebook-trending-fight-off-fake-news?utm_term=.od4JZ62mE#.qyvRwkvA7
+
+http://spectrum.ieee.org/computing/networks/social-medias-dialup-ancestor-the-bulletin-board-system
+
 http://coreyrobin.com/2016/10/23/six-reasons-for-optimism-and-one-big-one-for-pessimism/
 
 https://aeon.co/essays/if-the-internet-is-addictive-why-don-t-we-regulate-it
