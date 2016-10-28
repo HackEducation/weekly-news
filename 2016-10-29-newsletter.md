@@ -6,6 +6,10 @@ http://nowviskie.org/2016/speculative-collections/
 
 http://blog.edtechie.net/higher-ed/lets-think-inside-the-box/
 
+http://www.theatlantic.com/technology/archive/2016/10/we-built-a-fake-web-toaster-and-it-was-hacked-in-an-hour/505571/
+
+http://nowviskie.org/2016/speculative-collections/
+
 https://www.buzzfeed.com/annehelenpetersen/dad-vs-the-volcano?utm_term=.jooBO2b6X#.elQ25KnW0
 
 https://www.buzzfeed.com/craigsilverman/can-facebook-trending-fight-off-fake-news?utm_term=.od4JZ62mE#.qyvRwkvA7
