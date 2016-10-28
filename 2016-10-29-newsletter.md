@@ -6,6 +6,8 @@ https://www.propublica.org/article/facebook-lets-advertisers-exclude-users-by-ra
 
 http://nowviskie.org/2016/speculative-collections/
 
+https://psmag.com/satan-has-no-interest-in-molesting-your-kids-97adc0fc26d8#.ajsqqtvhh
+
 http://blog.edtechie.net/higher-ed/lets-think-inside-the-box/
 
 http://www.theatlantic.com/technology/archive/2016/10/we-built-a-fake-web-toaster-and-it-was-hacked-in-an-hour/505571/
