@@ -2,6 +2,8 @@
 
 https://www.buzzfeed.com/jamesball/heres-what-i-learned-about-julian-assange
 
+https://www.propublica.org/article/facebook-lets-advertisers-exclude-users-by-race
+
 http://nowviskie.org/2016/speculative-collections/
 
 http://blog.edtechie.net/higher-ed/lets-think-inside-the-box/
