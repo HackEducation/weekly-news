@@ -6,6 +6,12 @@ https://www.propublica.org/article/facebook-lets-advertisers-exclude-users-by-ra
 
 http://nowviskie.org/2016/speculative-collections/
 
+https://vivatiffany.wordpress.com/2016/10/27/academia-love-me-back/
+
+https://twitter.com/AndrewYNg/status/791657452198506497
+
+http://hackeducation.com/2016/10/28/monsters
+
 http://www.bloomberg.com/politics/articles/2016-10-25/trump-launches-nightly-campaign-broadcast-via-facebook-live
 
 https://psmag.com/satan-has-no-interest-in-molesting-your-kids-97adc0fc26d8#.ajsqqtvhh
