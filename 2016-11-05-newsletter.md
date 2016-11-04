@@ -4,6 +4,8 @@ http://www.npr.org/sections/ed/2016/10/31/495218823/beyond-the-pail-npr-unpacks-
 
 https://www.washingtonpost.com/opinions/the-mania-to-capture-our-eyeballs/2016/10/27/9fbebeb0-8b41-11e6-bff0-d53f592f176e_story.html
 
+http://motherboard.vice.com/read/peter-thiel-and-donald-trump-press-club-automation
+
 http://text-patterns.thenewatlantis.com/2016/11/children-of-twitter.html
 
 http://text-patterns.thenewatlantis.com/2016/10/social-media-emotion-and-politics.html
@@ -29,4 +31,3 @@ https://www.buzzfeed.com/craigsilverman/how-macedonia-became-a-global-hub-for-pr
 http://redpincushion.us/blog/professional-development/the-locks-on-our-bridges-critical-instructional-design-opened16-presentation/
 
 https://opendistanceteachingandlearning.wordpress.com/2016/11/01/some-thoughts-on-blogging-as-educational-activism/
-
