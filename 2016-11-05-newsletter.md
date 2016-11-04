@@ -19,3 +19,14 @@ http://www.uncomputing.org/?p=1846
 http://pushpullfork.com/2016/11/the-digital-and-the-sacred/
 
 http://adamcroom.com/2016/11/what-open-will-we-get-at-opened16/
+
+http://www.nytimes.com/2016/11/06/magazine/want-to-know-what-virtual-reality-might-become-look-to-the-past.html
+
+http://www.chronicle.com/article/The-PastFuture-of-Higher/238302
+
+https://www.buzzfeed.com/craigsilverman/how-macedonia-became-a-global-hub-for-pro-trump-misinfo?utm_term=.laRmR9B4Z#.bmBD239pL
+
+http://redpincushion.us/blog/professional-development/the-locks-on-our-bridges-critical-instructional-design-opened16-presentation/
+
+https://opendistanceteachingandlearning.wordpress.com/2016/11/01/some-thoughts-on-blogging-as-educational-activism/
+
