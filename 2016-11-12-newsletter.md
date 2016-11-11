@@ -40,6 +40,8 @@ http://blog.mrmeyer.com/2016/what-im-working-on-today/
 
 http://www.publicseminar.org/2016/11/disint/
 
+http://www.theatlantic.com/science/archive/2016/11/what-president-trump-could-mean-for-climate-change/507098/
+
 http://lawriephipps.co.uk/?p=8377
 
 http://opencontent.org/blog/archives/4783
