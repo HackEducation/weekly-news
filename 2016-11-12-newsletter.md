@@ -6,6 +6,24 @@ http://hypervisible.com/post/situating-innovation/
 
 http://www.niemanlab.org/2016/11/the-forces-that-drove-this-elections-media-failure-are-likely-to-get-worse/
 
+https://medium.com/@TeacherC/90dayactionplan-ff86b1de6acb#.q0bexbwoz
+
+http://lizlosh.com/blog/uncategorized/norfolk-pagoda/
+
+http://text-patterns.thenewatlantis.com/2016/11/the-problem-with-experts.html
+
+http://text-patterns.thenewatlantis.com/2016/11/revenge-of-morlocks.html
+
+http://www.newyorker.com/magazine/2016/10/17/leonard-cohen-makes-it-darker
+
+http://www.seanmichaelmorris.com/blog//critical-instructional-design-and-acts-of-resistance
+
+http://whatever.scalzi.com/2016/11/10/the-cinemax-theory-of-racism/
+
+http://www.zephoria.org/thoughts/archives/2016/11/10/polling-is-inaccurate.html
+
+https://hapgood.us/2016/11/10/facebook-broke-democracy-but-the-fix-is-harder-than-people-realize/
+
 http://audreywatters.com/2016/11/09/trump
 
 http://blogs.swarthmore.edu/burke/blog/2016/11/09/physician-heal-thyself-2/
