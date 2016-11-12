@@ -4,6 +4,12 @@ https://hapgood.us/2016/11/07/im-writing-a-book-on-the-disinfotopia-of-current-s
 
 http://hypervisible.com/post/situating-innovation/
 
+https://orionmagazine.org/article/our-storied-future/
+
+http://www.npr.org/sections/alltechconsidered/2016/11/11/501743684/zuckerberg-denies-fake-news-on-facebook-had-impact-on-the-election
+
+https://twitter.com/marshray/status/797304422699106304
+
 http://www.niemanlab.org/2016/11/the-forces-that-drove-this-elections-media-failure-are-likely-to-get-worse/
 
 https://medium.com/@TeacherC/90dayactionplan-ff86b1de6acb#.q0bexbwoz
