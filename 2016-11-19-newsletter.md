@@ -2,6 +2,12 @@
 
 https://www.buzzfeed.com/nitashatiku/trump-supporting-startup-ceo-kicked-out-of-y-combinator?utm_term=.qcgqgyDd0#.axAqwejd7
 
+https://helenbeetham.com/2016/11/14/ed-tech-and-the-circus-of-unreason/
+
+http://www.truth-out.org/opinion/item/38360-trump-in-the-white-house-an-interview-with-noam-chomsky
+
+http://motherboard.vice.com/read/your-government-wants-to-militarize-social-media-to-influence-your-beliefs
+
 https://twitter.com/SeanMcElwee/status/797638435662139392/photo/1
 
 http://shermandorn.com/wordpress/?p=8352
@@ -15,3 +21,11 @@ https://hapgood.us/2016/11/13/facebook-and-twitter-are-probably-making-google-a-
 https://hapgood.us/2016/11/13/fake-news-does-better-on-facebook-than-real-news/
 
 https://medium.com/@tressiemcphd/digital-redlining-after-trump-real-names-fake-news-on-facebook-af63bf00bf9e#.v1d57b6wq
+
+http://www.nytimes.com/2016/11/15/opinion/mark-zuckerberg-is-in-denial.html
+
+http://www.npr.org/sections/alltechconsidered/2016/11/15/502111390/facebook-google-take-steps-to-confront-fake-news
+
+https://www.buzzfeed.com/sheerafrenkel/renegade-facebook-employees-form-task-force-to-battle-fake-n
+
+https://hapgood.us/2016/11/14/the-they-had-their-minds-made-up-anyway-excuse/
