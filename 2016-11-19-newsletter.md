@@ -1,5 +1,7 @@
 ## HEWN, No. 188
 
+https://twitter.com/sesamestreet/status/798966024821415937
+
 https://etug.ca/2016/11/15/fall-workshop-2016-keynote-speaker-audrey-watters/
 
 https://twitter.com/CIA/status/798661266902433792
