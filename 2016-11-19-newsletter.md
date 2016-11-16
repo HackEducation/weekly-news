@@ -1,5 +1,23 @@
 ## HEWN, No. 188
 
+https://etug.ca/2016/11/15/fall-workshop-2016-keynote-speaker-audrey-watters/
+
+https://twitter.com/CIA/status/798661266902433792
+
+http://www.citylab.com/commute/2016/11/the-problem-with-mussolini-and-his-trains/507764/
+
+http://www.nytimes.com/2016/11/15/opinion/mark-zuckerberg-is-in-denial.html?_r=1
+
+https://twitter.com/i/web/status/798594275869081600
+
+https://www.jacobinmag.com/2016/11/education-reform-inequality-jobs-economy/
+
+https://hapgood.us/2016/11/15/maybe-rethink-the-cult-of-virality/
+
+https://lareviewofbooks.org/article/no-mind-to-lose-on-brainwashing/
+
+https://medium.com/@rortybomb/preparing-for-the-worst-how-conservatives-will-govern-in-2017-3889bcb4bb48#.6ee2l2cyo
+
 https://www.buzzfeed.com/nitashatiku/trump-supporting-startup-ceo-kicked-out-of-y-combinator?utm_term=.qcgqgyDd0#.axAqwejd7
 
 https://helenbeetham.com/2016/11/14/ed-tech-and-the-circus-of-unreason/
