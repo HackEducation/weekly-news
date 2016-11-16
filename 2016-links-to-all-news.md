@@ -28,6 +28,8 @@ http://hackeducation.com/2016/03/25/hack-education-weekly-news
 
 http://hackeducation.com/2016/04/01/hack-education-weekly-news
 
+http://hackeducation.com/2016/04/08/hack-education-weekly-news
+
 http://hackeducation.com/2016/04/15/hack-education-weekly-news
 
 http://hackeducation.com/2016/04/22/hack-education-weekly-news
