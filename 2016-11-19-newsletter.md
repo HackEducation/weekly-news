@@ -1,5 +1,29 @@
 ## HEWN, No. 188
 
+https://www.technologyreview.com/s/602873/wikileaks-e-mails-are-an-election-influence-to-really-worry-about/
+
+http://kottke.org/16/11/the-14-features-of-eternal-fascism
+
+http://tinyletter.com/hels/letters/issue-4-steak
+
+http://boingboing.net/2016/11/16/post-truth-is-the-oxford-d.html
+
+https://hapgood.us/2016/11/15/facebooks-wall-metaphor-and-political-polarization/
+
+http://reallifemag.com/what-was-the-nerd/
+
+http://www.theatlantic.com/politics/archive/2016/11/twitter-censorship-will-only-empower-the-alt-right/507929/
+
+http://www.npr.org/2016/11/16/502345062/committee-to-protect-journalists-outlines-medias-role-in-debunking-fake-news
+
+https://medium.com/@edifiedlistener/identity-education-and-power-in-the-aftermath-4f628e951025#.nre632mhn
+
+https://twitter.com/sesamestreet/status/798966024821415937
+
+https://www.buzzfeed.com/craigsilverman/viral-fake-election-news-outperformed-real-news-on-facebook?utm_term=.pxb28V1PN#.dvG1GBox6
+
+https://scholarlykitchen.sspnet.org/2016/11/17/hows-that-abundance-thing-working-out-for-you/
+
 https://twitter.com/sesamestreet/status/798966024821415937
 
 https://etug.ca/2016/11/15/fall-workshop-2016-keynote-speaker-audrey-watters/
