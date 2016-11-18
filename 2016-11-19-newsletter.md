@@ -2,6 +2,8 @@
 
 https://www.technologyreview.com/s/602873/wikileaks-e-mails-are-an-election-influence-to-really-worry-about/
 
+https://twitter.com/sesamestreet/status/798966024821415937
+
 http://kottke.org/16/11/the-14-features-of-eternal-fascism
 
 http://idlewords.com/talks/robot_armies.htm
