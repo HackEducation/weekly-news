@@ -4,6 +4,26 @@ https://www.technologyreview.com/s/602873/wikileaks-e-mails-are-an-election-infl
 
 http://kottke.org/16/11/the-14-features-of-eternal-fascism
 
+http://idlewords.com/talks/robot_armies.htm
+
+https://hapgood.us/2016/11/17/scanning-the-facebook-feed-as-an-evidence-shopping-experience/
+
+http://www.publicbooks.org/feature/trump-syllabus-20
+
+http://www.independent.co.uk/news/world/americas/white-nationalist-movement-twitter-faster-growth-isis-islamic-state-study-a7223671.html
+
+https://medium.com/@Poundstoremike/harry-potter-and-the-death-of-the-west-ba06b5ba159#.skgs4dvb1
+
+http://hackeducation.com/2016/11/17/trump
+
+https://www.washingtonpost.com/news/post-politics/wp/2016/11/09/clintons-data-driven-campaign-relied-heavily-on-an-algorithm-named-ada-what-didnt-she-see/
+
+http://followersoftheapocalyp.se/its-good-to-be-king/
+
+http://utotherescue.blogspot.com/2016/11/after-election.html
+
+https://www.socialeurope.eu/2016/11/democratic-polarisation-pull-ground-right-wing-populism/
+
 http://tinyletter.com/hels/letters/issue-4-steak
 
 http://boingboing.net/2016/11/16/post-truth-is-the-oxford-d.html
