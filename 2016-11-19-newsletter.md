@@ -2,6 +2,22 @@
 
 https://www.technologyreview.com/s/602873/wikileaks-e-mails-are-an-election-influence-to-really-worry-about/
 
+http://www.theatlantic.com/technology/archive/2016/11/how-light-bulbs-watch-you-buy-groceries/508061/
+
+https://theintercept.com/2016/11/18/troubling-study-says-artificial-intelligence-can-predict-who-will-be-criminals-based-on-facial-features/
+
+http://www.roughtype.com/?p=7437
+
+http://text-patterns.thenewatlantis.com/2016/11/vicious-circles-identity-and-anxiety.html
+
+https://tressiemc.com/digitalsociologies/racism-with-no-racists-the-president-trump-conundrum/
+
+http://alex-reid.net/2016/11/the-fantasies-and-limits-of-experts-and-elites.html
+
+https://abolitionjournal.org/the-pitfalls-of-white-liberal-panic/
+
+https://hapgood.us/2016/11/18/fooled-by-recency-hoaxers-increment-dates-on-fake-stories/
+
 https://twitter.com/sesamestreet/status/798966024821415937
 
 http://kottke.org/16/11/the-14-features-of-eternal-fascism
