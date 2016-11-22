@@ -17,3 +17,23 @@ https://www.theguardian.com/us-news/2016/nov/19/donald-trump-us-election-predict
 https://www.theguardian.com/commentisfree/2016/nov/16/globalization-trump-inequality-thomas-piketty
 
 https://medium.com/@samplereality/whatd-i-miss-590fb45bf5ee#.74eqmm19k
+
+http://www.aaihs.org/prison-abolition-syllabus/
+
+https://www.washingtonpost.com/news/the-switch/wp/2016/11/21/the-secretive-brain-trust-of-silicon-valley-insiders-who-are-helping-trump/?tid=sm_tw
+
+https://www.buzzfeed.com/craigsilverman/conservative-page-owners-in-fake-news-panic?bftwnews&utm_term=.dpy75nDKN#.srrELV5lp
+
+http://blog.lareviewofbooks.org/essays/making-white-supremacy-respectable/
+
+http://halfanhour.blogspot.com/2016/11/post-truth-and-fake-news.html
+
+https://modelviewculture.com/pieces/welcome-to-virtual-reality-valid-identification-required
+
+https://medium.freecodecamp.com/the-code-im-still-ashamed-of-e4c021dff55e#.7aczna95b
+
+http://jadedid.com/performingthedigital/2016/11/20/draft-thoughts-on-empathy-gathered-from-various-digital-notebooks/
+
+https://medium.com/whither-news/a-call-for-cooperation-against-fake-news-d7d94bb6e0d4#.8n48d9aoo
+
+https://www.buzzfeed.com/alexkantrowitz/2016-election-blew-up-in-facebooks-face
