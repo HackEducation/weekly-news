@@ -2,6 +2,22 @@
 
 https://elizabethcatte.com/2016/11/19/common-people/
 
+http://www.newsweek.com/2016/11/11/donald-trump-companies-destroyed-emails-documents-515120.html
+
+https://lareviewofbooks.org/article/two-bubbles-unrealism-learning-tragedy-trump/#!
+
+http://www.theatlantic.com/technology/archive/2016/11/the-toxic-waste-drum-is-everywhere/508418/
+
+http://www.motherjones.com/politics/2016/11/trump-white-nationalists-hate-racism-power
+
+http://www.nytimes.com/2016/11/22/magazine/billionaires-vs-the-press-in-the-era-of-trump.html
+
+https://www.washingtonpost.com/lifestyle/style/what-tv-journalists-did-wrong--and-the-new-york-times-did-right--in-meeting-with-trump/2016/11/22/54fe17ba-b0d3-11e6-8616-52b15787add0_story.html (It's the kicker that's worth sharing)
+
+http://www.nytimes.com/2016/11/22/technology/facebook-censorship-tool-china.html
+
+http://pressthink.org/2016/11/22/tile/gamergate-model-press-relations/
+
 http://www.nytimes.com/2016/11/20/business/media/how-fake-news-spreads.html
 
 http://www.nytimes.com/2016/11/20/opinion/the-secret-agenda-of-a-facebook-quiz.html
