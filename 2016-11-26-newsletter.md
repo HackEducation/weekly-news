@@ -2,6 +2,16 @@
 
 https://elizabethcatte.com/2016/11/19/common-people/
 
+http://www.independent.co.uk/news/world/americas/cambridge-analytica-steve-bannon-robert-rebekah-mercer-donald-trump-conflicts-of-interest-white-a7435536.html
+
+https://medium.com/initialized-capital/fascism-and-the-historical-irony-of-facebooks-fake-news-problem-d744b05045fd#.52n89tko2
+
+http://text-patterns.thenewatlantis.com/2016/11/on-not-learning-to-code.html
+
+https://medium.com/@jhalderm/want-to-know-if-the-election-was-hacked-look-at-the-ballots-c61a6113b0ba#.dp4qn08sb
+
+https://socialmediacollective.org/2016/11/23/these-days-everyone-needs-a-side-hustle/
+
 http://www.newsweek.com/2016/11/11/donald-trump-companies-destroyed-emails-documents-515120.html
 
 https://lareviewofbooks.org/article/two-bubbles-unrealism-learning-tragedy-trump/#!
