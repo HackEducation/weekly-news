@@ -4,6 +4,10 @@ https://www.washingtonpost.com/business/economy/russian-propaganda-effort-helped
 
 http://www.nytimes.com/2016/11/23/opinion/no-trump-we-cant-just-get-along.html
 
+http://utotherescue.blogspot.com/2016/11/as-trump-privatizes-education-dumping.html
+
+http://motherboard.vice.com/read/flyover-country
+
 http://thenewinquiry.com/blogs/zunguzungu/thanksgiving-is-bullshit/
 
 https://lareviewofbooks.org/article/the-supermanagerial-reich/
