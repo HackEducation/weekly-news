@@ -4,6 +4,8 @@ http://dmlcentral.net/ibm-pearson-cognitive-infrastructure-education/
 
 http://theconcourse.deadspin.com/who-lost-the-white-house-1789443349
 
+http://theory.cribchronicles.com/2016/11/30/temporarily-embarrassed-millionaires/
+
 https://thefrailestthing.com/2016/11/29/to-act-or-not-to-act-on-social-media/
 
 http://lithub.com/who-is-the-genius-behind-merriam-websters-social-media/
