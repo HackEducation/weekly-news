@@ -1,5 +1,15 @@
 ## HEWN, No. 190
 
+http://www.universityaffairs.ca/opinion/speculative-diction/post-election-pondering/
+
+http://www.newyorker.com/news/news-desk/the-propaganda-about-russian-propaganda
+
+http://www.theatlantic.com/technology/archive/2016/12/the-search-for-lost-knowledge/506879/
+
+http://www.nytimes.com/2016/11/30/opinion/i-am-a-dangerous-professor.html
+
+http://mentalfloss.com/uk/technology/32106/the-true-purpose-of-solitaire-minesweeper-hearts-and-freecell
+
 http://dmlcentral.net/ibm-pearson-cognitive-infrastructure-education/
 
 http://theconcourse.deadspin.com/who-lost-the-white-house-1789443349
