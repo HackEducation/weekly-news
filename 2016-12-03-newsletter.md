@@ -1,5 +1,15 @@
 ## HEWN, No. 190
 
+http://www.sfgate.com/opinion/article/Garrison-Keillor-Life-after-the-election-10616261.php
+
+http://www.nytimes.com/2016/12/02/technology/zenefits-chief-quitting-and-is-said-to-consider-trump-transition-team.html
+
+http://www.nytimes.com/2016/12/02/technology/zenefits-chief-quitting-and-is-said-to-consider-trump-transition-team.html
+
+http://www.wsj.com/articles/gen-james-mattis-has-ties-to-theranos-1480651171
+
+http://www.theatlantic.com/health/archive/2016/03/does-knowing-personal-health-risks-change-behavior/473991/
+
 http://www.universityaffairs.ca/opinion/speculative-diction/post-election-pondering/
 
 http://www.newyorker.com/news/news-desk/the-propaganda-about-russian-propaganda
