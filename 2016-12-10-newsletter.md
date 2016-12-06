@@ -8,3 +8,10 @@ https://thefrailestthing.com/2016/12/03/orality-and-literacy-revisited/
 
 http://text-patterns.thenewatlantis.com/2016/12/open-letter-to-adam-roberts-on.html
 
+https://www.buzzfeed.com/nitashatiku/silicon-valleys-most-popular-forum-bans-stories-about-politi
+
+http://www.nytimes.com/2016/12/05/technology/facebook-and-other-tech-companies-seek-to-curb-flow-of-terrorist-content.html
+
+http://www.newyorker.com/culture/cultural-comment/the-frankfurt-school-knew-trump-was-coming
+
+http://www.theatlantic.com/politics/archive/2016/12/the-inevitability-of-more-comet-pizza-incidents/509567/
