@@ -2,6 +2,14 @@
 
 https://hapgood.us/2016/12/07/announcing-the-digital-polarization-initiative-an-open-pedagogy-joint/
 
+http://boingboing.net/2016/12/09/company-town-internet-of-thi.html
+
+https://hapgood.us/2016/12/08/quick-note-on-the-recent-buzzfeed-study/
+
+https://www.theguardian.com/technology/2016/dec/05/facebook-twitter-google-microsoft-terrorist-extremist-content
+
+http://blogs.swarthmore.edu/burke/blog/2016/12/08/the-room-where-it-happens/
+
 https://hapgood.us/2016/12/07/familiarity-truth-a-reprise/
 
 https://backchannel.com/put-away-your-machine-learning-hammer-criminality-is-not-a-nail-1309c84bb899#.mx1flimr3
