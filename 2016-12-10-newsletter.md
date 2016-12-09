@@ -2,6 +2,8 @@
 
 https://hapgood.us/2016/12/07/announcing-the-digital-polarization-initiative-an-open-pedagogy-joint/
 
+http://www.nytimes.com/2016/12/06/opinion/the-future-of-privacy.html
+
 http://boingboing.net/2016/12/09/company-town-internet-of-thi.html
 
 https://hapgood.us/2016/12/08/quick-note-on-the-recent-buzzfeed-study/
