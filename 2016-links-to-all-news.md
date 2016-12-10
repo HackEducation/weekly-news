@@ -97,3 +97,5 @@ http://hackeducation.com/2016/11/18/hack-education-weekly-news
 http://hackeducation.com/2016/11/25/hack-education-weekly-news
 
 http://hackeducation.com/2016/12/02/hack-education-weekly-news
+
+http://hackeducation.com/2016/12/09/hack-education-weekly-news
