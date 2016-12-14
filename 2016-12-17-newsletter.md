@@ -2,6 +2,26 @@
 
 http://www.roughtype.com/?p=7470
 
+http://gizmodo.com/google-wont-alter-the-holocaust-denying-results-for-di-1790025043
+
+http://thebaffler.com/salvos/big-bother-slack-silverman
+
+https://hapgood.us/2016/12/13/would-you-give-google-a-passing-grade-on-its-ai-project/
+
+https://www.buzzfeed.com/nitashatiku/never-again-tech-pledge?utm_term=.ol7oBvkzL#.xuNW82Xo6
+
+http://neveragain.tech/
+
+http://www.eater.com/2016/12/13/13926088/top-eater-longreads-2016
+
+https://www.thenation.com/article/was-obama-silicon-valleys-president/
+
+https://www.theatlantic.com/politics/archive/2016/12/obamas-faith-in-white-america/510503/
+
+https://www.buzzfeed.com/nitashatiku/facebook-trump-muslim-registry
+
+http://www.nytimes.com/2016/12/14/magazine/the-great-ai-awakening.html
+
 http://hazlitt.net/feature/year-avatars
 
 http://www.newyorker.com/culture/culture-desk/how-westworld-failed-the-western
