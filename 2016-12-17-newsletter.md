@@ -4,6 +4,12 @@ http://www.roughtype.com/?p=7470
 
 https://www.buzzfeed.com/sheerafrenkel/a-russian-program-just-launched-to-help-you-find-anyones-fac
 
+http://reallifemag.com/apocalypse-whatever/
+
+http://blogs.swarthmore.edu/burke/blog/2016/12/15/trumpism-and-expertise/
+
+http://www.collectorsweekly.com/articles/how-the-soviets-revolutionized-wristwatches/
+
 http://www.cnbc.com/2016/11/25/trump-defeated-republicans-as-much-or-more-than-democrats.html
 
 http://www.newyorker.com/magazine/2016/12/19/our-automated-future
