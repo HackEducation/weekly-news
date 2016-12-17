@@ -4,6 +4,14 @@ http://www.roughtype.com/?p=7470
 
 https://www.buzzfeed.com/sheerafrenkel/a-russian-program-just-launched-to-help-you-find-anyones-fac
 
+http://www.techrepublic.com/article/inside-amazons-clickworker-platform-how-half-a-million-people-are-training-ai-for-pennies-per-task/
+
+http://www.freepress.net/blog/2016/12/13/digital-denied-systemic-discrimination-keeps-communities-offline
+
+http://www.newyorker.com/magazine/2016/12/12/the-ex-con-scholars-of-berkeley
+
+http://www.wsj.com/articles/the-children-of-the-opioid-crisis-1481816178
+
 http://reallifemag.com/apocalypse-whatever/
 
 http://blogs.swarthmore.edu/burke/blog/2016/12/15/trumpism-and-expertise/
