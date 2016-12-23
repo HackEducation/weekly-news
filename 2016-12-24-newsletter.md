@@ -17,3 +17,5 @@ http://www.roughtype.com/?p=7523
 http://www.mtv.com/news/2964153/a-star-wars-story-youve-seen-before/
 
 http://www.recode.net/2016/12/19/13600538/silicon-valley-grow-up-donald-trump-election
+
+https://www.theatlantic.com/politics/archive/2016/12/how-barack-obama-failed-black-americans/511358/
