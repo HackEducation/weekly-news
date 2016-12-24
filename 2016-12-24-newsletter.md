@@ -19,3 +19,9 @@ http://www.mtv.com/news/2964153/a-star-wars-story-youve-seen-before/
 http://www.recode.net/2016/12/19/13600538/silicon-valley-grow-up-donald-trump-election
 
 https://www.theatlantic.com/politics/archive/2016/12/how-barack-obama-failed-black-americans/511358/
+
+http://www.newyorker.com/news/news-desk/world-war-three-by-mistake
+
+https://theintercept.com/2016/12/23/virtual-reality-allows-the-most-detailed-intimate-digital-surveillance-yet/
+
+http://idlewords.com/talks/superintelligence.htm
