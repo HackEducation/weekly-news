@@ -2,6 +2,8 @@
 
 http://www.bizjournals.com/sanfrancisco/news/2016/12/28/east-bay-lead-exposure-fruitvale-oakland.html
 
+https://hapgood.us/2016/12/29/why-youre-fooling-yourself-about-fooling-yourself-about-fake-news/
+
 https://mobunited.wordpress.com/2016/12/28/leia-organa-a-critical-obituary/
 
 https://techcrunch.com/2016/12/28/amazon-patents-show-flying-warehouses-that-send-delivery-drones-to-your-door/
