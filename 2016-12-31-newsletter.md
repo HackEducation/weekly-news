@@ -1,5 +1,11 @@
 ## HEWN, No. 194
 
+http://motherboard.vice.com/read/the-disk-formats-of-star-wars-rogue-one-spoilers
+
+https://backchannel.com/be-healthy-or-else-how-corporations-became-obsessed-with-fitness-tracking-b0c019faff8d#.dfwu4737x
+
+https://thefrailestthing.com/2016/12/30/our-digital-idiocy/
+
 http://www.bizjournals.com/sanfrancisco/news/2016/12/28/east-bay-lead-exposure-fruitvale-oakland.html
 
 https://twitter.com/AvanJogia/status/813860920682115072
