@@ -4,6 +4,8 @@ http://www.theregister.co.uk/2017/01/02/ai_was_the_fake_news_of_2016/
 
 http://motherboard.vice.com/read/womens-healthcare-star-wars
 
+http://theory.cribchronicles.com/2017/01/07/antigonish-2-0-the-plan/
+
 http://www.zephoria.org/thoughts/archives/2017/01/06/hacking-the-attention-economy.html
 
 https://points.datasociety.net/did-media-literacy-backfire-7418c084d88d#.fr8qnp2ld
