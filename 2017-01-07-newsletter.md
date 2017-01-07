@@ -2,6 +2,8 @@
 
 http://www.theregister.co.uk/2017/01/02/ai_was_the_fake_news_of_2016/
 
+https://points.datasociety.net/media-technology-politics-258f4cfce87c#.75aj9klu1
+
 http://motherboard.vice.com/read/womens-healthcare-star-wars
 
 http://theory.cribchronicles.com/2017/01/07/antigonish-2-0-the-plan/
