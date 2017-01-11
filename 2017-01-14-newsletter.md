@@ -16,3 +16,4 @@ http://www.nytimes.com/aponline/2017/01/09/world/europe/ap-eu-poland-obit-bauman
 
 https://hbr.org/2017/01/the-humans-working-behind-the-ai-curtain
 
+https://thefrailestthing.com/2017/01/10/dark-times/
