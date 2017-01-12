@@ -17,3 +17,9 @@ http://www.nytimes.com/aponline/2017/01/09/world/europe/ap-eu-poland-obit-bauman
 https://hbr.org/2017/01/the-humans-working-behind-the-ai-curtain
 
 https://thefrailestthing.com/2017/01/10/dark-times/
+
+http://callingbullshit.org/syllabus.html
+
+https://theweek.com/articles/671371/sad-end-apple-era
+
+https://wearethemutants.com/2017/01/11/esp-teaching-machines-1971-1973/
