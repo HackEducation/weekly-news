@@ -1,5 +1,11 @@
 ## HEWN, No. 196
 
+https://www.technologyreview.com/s/603242/questionable-young-blood-transfusions-offered-in-us-as-anti-aging-remedy/
+
+http://www.vanityfair.com/news/2017/01/will-mark-zuckerberg-be-our-next-president
+
+https://psmag.com/down-syndrome-and-the-stories-we-tell-f3c35c64b886#.fbklgxs96
+
 http://dmlcentral.net/semi-automated-luxury-parenting/
 
 http://www.thedailybeast.com/articles/2017/01/08/i-dropped-acid-and-saw-into-the-future-my-surreal-first-time-at-ces.html
