@@ -15,3 +15,7 @@ http://www.newyorker.com/news/news-desk/john-lewis-donald-trump-and-the-meaning-
 https://medium.com/@SeanBlanda/medium-and-the-reason-you-cant-stand-the-news-anymore-c98068fec3f8#.k7uh26ult
 
 https://peterwebster.me/2017/01/16/electronic-dreams-a-review/
+
+http://www.newyorker.com/culture/cultural-comment/philip-k-dicks-intellectual-vision-for-living-in-a-fascist-america
+
+https://theintercept.com/2017/01/17/notorious-mercenary-erik-prince-is-advising-trump-from-the-shadows/
