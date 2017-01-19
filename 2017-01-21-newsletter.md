@@ -18,4 +18,14 @@ https://peterwebster.me/2017/01/16/electronic-dreams-a-review/
 
 http://www.newyorker.com/culture/cultural-comment/philip-k-dicks-intellectual-vision-for-living-in-a-fascist-america
 
+http://coreyrobin.com/2017/01/18/on-how-and-how-not-to-resist-trump/
+
+http://reallifemag.com/all-i-know-is-whats-on-the-internet/
+
+https://youtu.be/qB6A45tA6mE
+
+https://boingboing.net/2017/01/18/how-louis-ck-tells-a-joke.html
+
+https://www.bloomberg.com/news/articles/2017-01-18/this-team-runs-mark-zuckerberg-s-facebook-page
+
 https://theintercept.com/2017/01/17/notorious-mercenary-erik-prince-is-advising-trump-from-the-shadows/
