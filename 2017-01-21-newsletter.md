@@ -4,6 +4,8 @@ The Week in Robots
 
 https://www.wired.com/2017/01/geeks-guide-bruce-sterling/
 
+https://qz.com/165716/how-i-made-sure-all-12-of-my-kids-could-pay-for-college-themselves/
+
 http://www.chronicle.com/article/FacebookFalsehood/238867
 
 http://www.chronicle.com/article/Googlethe-Misinformed/238868
