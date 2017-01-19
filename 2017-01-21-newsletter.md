@@ -10,6 +10,8 @@ http://www.chronicle.com/article/Googlethe-Misinformed/238868
 
 https://www.emptywheel.net/2017/01/15/on-fake-news/
 
+https://wrenchinthegears.com/2017/01/16/how-did-the-department-of-defense-end-up-in-my-childs-classroom/
+
 http://www.newyorker.com/news/news-desk/john-lewis-donald-trump-and-the-meaning-of-legitimacy
 
 https://medium.com/@SeanBlanda/medium-and-the-reason-you-cant-stand-the-news-anymore-c98068fec3f8#.k7uh26ult
