@@ -2,6 +2,8 @@
 
 The Week in Robots
 
+Letter to Mr. White
+
 https://www.nytimes.com/2017/01/19/opinion/are-you-not-alarmed.html
 
 https://motherboard.vice.com/read/help-does-anyone-know-the-story-behind-this-giant-computer?asdf
