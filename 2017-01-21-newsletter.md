@@ -2,6 +2,14 @@
 
 The Week in Robots
 
+https://www.nytimes.com/2017/01/19/opinion/are-you-not-alarmed.html
+
+https://motherboard.vice.com/read/help-does-anyone-know-the-story-behind-this-giant-computer?asdf
+
+http://seanmichaelmorris.com/once-a-fearsome-murderer-invaded-a-zen-masters-home/
+
+https://medium.com/@ipestov/worst-tech-predictions-of-the-past-100-years-c18654211375#.g6jft4wl6
+
 https://www.wired.com/2017/01/geeks-guide-bruce-sterling/
 
 https://qz.com/165716/how-i-made-sure-all-12-of-my-kids-could-pay-for-college-themselves/
