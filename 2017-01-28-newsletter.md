@@ -12,3 +12,12 @@ https://tressiemc.com/essays-2/a-few-notes-on-gaslighting/
 
 http://www.newyorker.com/magazine/2017/01/30/doomsday-prep-for-the-super-rich
 
+http://www.roughtype.com/?p=7620
+
+https://www.outsideonline.com/2150411/worst-could-happen-planet-under-trump
+
+https://medium.com/@pdehaye/microtargeting-of-low-information-voters-6eb2520cd473#.hzbek9n0y
+
+https://theageofausterity.wordpress.com/2017/01/23/keywords-for-the-age-of-austerity-27-alternative/
+
+http://www.newyorker.com/magazine/2017/01/30/doomsday-prep-for-the-super-rich
