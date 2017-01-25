@@ -8,6 +8,10 @@ https://lareviewofbooks.org/article/algorithmic-life/
 
 https://www.theatlantic.com/politics/archive/2017/01/donald-trumps-authoritarian-politics-of-memory/514004/
 
+https://www.mcsweeneys.net/articles/official-united-states-department-of-education-grizzly-bear-policy
+
+https://www.theguardian.com/politics/2017/jan/19/crisis-of-statistics-big-data-democracy
+
 https://tressiemc.com/essays-2/a-few-notes-on-gaslighting/
 
 http://www.newyorker.com/magazine/2017/01/30/doomsday-prep-for-the-super-rich
