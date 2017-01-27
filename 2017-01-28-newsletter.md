@@ -8,6 +8,8 @@ http://www.digitalpedagogylab.com/hybridped/community-focused-versus-market-driv
 
 https://mondaynote.com/facebook-journalism-project-is-nothing-but-a-much-needed-pr-stunt-c756744acec1#.j1h9xdgub
 
+https://antidotezine.com/2017/01/22/trump-knows-you/
+
 https://lareviewofbooks.org/article/algorithmic-life/
 
 https://www.theatlantic.com/politics/archive/2017/01/donald-trumps-authoritarian-politics-of-memory/514004/
