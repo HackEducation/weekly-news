@@ -2,6 +2,10 @@
 
 The Week in Robots
 
+http://alex-reid.net/2017/01/beware-the-ides-of-marching.html
+
+http://www.digitalpedagogylab.com/hybridped/community-focused-versus-market-driven-education/
+
 https://mondaynote.com/facebook-journalism-project-is-nothing-but-a-much-needed-pr-stunt-c756744acec1#.j1h9xdgub
 
 https://lareviewofbooks.org/article/algorithmic-life/
