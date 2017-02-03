@@ -12,6 +12,8 @@ https://www.theatlantic.com/magazine/archive/2017/03/how-to-build-an-autocracy/5
 
 https://theintercept.com/2017/01/31/the-fbi-has-quietly-investigated-white-supremacist-infiltration-of-law-enforcement/
 
+http://annlarson.org/2017/01/28/trumps-corporate-coup-detat-and-the-elimination-of-human-teachers/
+
 https://oddletters.com/the-coming-swarm/
 
 http://www.proactiveinvestors.co.uk/companies/stocktube/6814/-it-s-all-about-the-next-5-years-for-frontier-services-says-chairman-erik-prince-6814.html
