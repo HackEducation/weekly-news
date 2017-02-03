@@ -19,3 +19,15 @@ http://www.proactiveinvestors.co.uk/companies/stocktube/6814/-it-s-all-about-the
 http://kottke.org/17/01/the-angel-of-history
 
 http://dmlcentral.net/emotional-computing-education/
+
+http://blogs.swarthmore.edu/burke/blog/2017/02/01/fighting-for-the-ancien-regime/
+
+Week in Robots
+
+Ed-Tech in a Time of Trump
+
+http://fivethirtyeight.com/features/star-wars-in-one-animated-chart/
+
+http://blog.edtechie.net/ou/the-role-of-institutional-memory/
+
+http://www.richard-hall.org/2017/02/01/notes-on-education-as-gaslighting/
