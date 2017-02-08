@@ -7,3 +7,9 @@ https://arstechnica.com/security/2017/01/in-not-too-distant-future-brain-hackers
 http://annlarson.org/2017/02/04/into-the-weeds/
 
 https://lareviewofbooks.org/article/normalization-lesson-munich-post/
+
+https://aeon.co/essays/is-a-mission-to-mars-morally-defensible-given-todays-real-needs
+
+http://followersoftheapocalyp.se/rethinking-edtech/
+
+https://psmag.com/antifascists-have-become-the-most-reasonable-people-in-america-92525aceabd5#.5hg9csems
