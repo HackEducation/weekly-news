@@ -13,3 +13,11 @@ https://aeon.co/essays/is-a-mission-to-mars-morally-defensible-given-todays-real
 http://followersoftheapocalyp.se/rethinking-edtech/
 
 https://psmag.com/antifascists-have-become-the-most-reasonable-people-in-america-92525aceabd5#.5hg9csems
+
+http://coreyrobin.com/2017/02/09/trump-0-democrats-0-the-people-1/
+
+http://text-patterns.thenewatlantis.com/2017/02/platforms-and-institutions.html
+
+https://theestablishment.co/white-people-i-dont-want-you-to-understand-me-better-i-want-you-to-understand-yourselves-a6fbedd42ddf#.b0yswlori
+
+https://www.wired.com/2016/09/trumps-campaign-ceos-little-known-world-warcraft-career/
