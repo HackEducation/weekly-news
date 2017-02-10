@@ -6,6 +6,8 @@ https://arstechnica.com/security/2017/01/in-not-too-distant-future-brain-hackers
 
 http://annlarson.org/2017/02/04/into-the-weeds/
 
+https://arstechnica.com/cars/2017/02/tesla-employee-writes-of-low-wages-poor-morale-company-denies-claims/
+
 https://lareviewofbooks.org/article/normalization-lesson-munich-post/
 
 https://aeon.co/essays/is-a-mission-to-mars-morally-defensible-given-todays-real-needs
