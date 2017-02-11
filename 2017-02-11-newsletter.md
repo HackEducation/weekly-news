@@ -2,6 +2,10 @@
 
 https://www.theatlantic.com/education/archive/2017/02/a-lesson-from-trump-universitys-predecessor/514808/
 
+http://www.teenvogue.com/story/jackie-rayos-garcia-mother-deported-guadalupe-garcia-de-rayos
+
+http://kottke.org/17/02/a-reading-list-on-fascism
+
 https://arstechnica.com/security/2017/01/in-not-too-distant-future-brain-hackers-could-steal-your-deepest-secrets/
 
 http://annlarson.org/2017/02/04/into-the-weeds/
