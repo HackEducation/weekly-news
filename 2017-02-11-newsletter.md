@@ -2,6 +2,10 @@
 
 https://www.theatlantic.com/education/archive/2017/02/a-lesson-from-trump-universitys-predecessor/514808/
 
+https://aeon.co/essays/the-macho-violent-culture-of-italian-fascism-was-prophetic
+
+http://highline.huffingtonpost.com/articles/en/school-lunch/
+
 http://www.teenvogue.com/story/jackie-rayos-garcia-mother-deported-guadalupe-garcia-de-rayos
 
 http://kottke.org/17/02/a-reading-list-on-fascism
