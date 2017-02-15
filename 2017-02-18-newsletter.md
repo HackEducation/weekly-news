@@ -9,3 +9,7 @@ https://tcf.org/content/report/vietnam-vets-new-student-loan-program-bring-new-c
 https://theageofausterity.wordpress.com/2017/02/13/keywords-for-the-age-of-austerity-29-hackhackinghacker/
 
 https://www.bostonglobe.com/ideas/2017/01/22/sorry-silicon-valley-but-disruption-isn-cure-all/M9LenqPQnMrbZDlkp0w92O/story.html
+
+https://www.theatlantic.com/technology/archive/2017/02/the-myth-of-apples-great-design/516093/
+
+https://medium.com/humane-tech/tech-and-the-fake-market-tactic-8bd386e3d382#.tmy7mlouu
