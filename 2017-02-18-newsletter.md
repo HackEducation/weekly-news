@@ -13,3 +13,11 @@ https://www.bostonglobe.com/ideas/2017/01/22/sorry-silicon-valley-but-disruption
 https://www.theatlantic.com/technology/archive/2017/02/the-myth-of-apples-great-design/516093/
 
 https://medium.com/humane-tech/tech-and-the-fake-market-tactic-8bd386e3d382#.tmy7mlouu
+
+https://m.facebook.com/notes/mark-zuckerberg/building-global-community/10103508221158471/
+
+https://qz.com/911968/bill-gates-the-robot-that-takes-your-job-should-pay-taxes/
+
+https://librarianshipwreck.wordpress.com/2017/02/17/the-world-according-to-facebook/
+
+The Week in Robots
