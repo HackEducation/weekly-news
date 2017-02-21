@@ -5,3 +5,7 @@ https://medium.com/@DaleBeran/4chan-the-skeleton-key-to-the-rise-of-trump-624e7c
 https://hapgood.us/2017/02/18/the-lead-hypothesis-and-a-gripe-about-mobile/
 
 http://www.roughtype.com/?p=7651
+
+https://lareviewofbooks.org/article/forgotten-accounts/
+
+https://teachingindc.com/2017/02/20/experience-matters/
