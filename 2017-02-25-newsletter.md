@@ -9,3 +9,9 @@ http://www.roughtype.com/?p=7651
 https://lareviewofbooks.org/article/forgotten-accounts/
 
 https://teachingindc.com/2017/02/20/experience-matters/
+
+https://www.nytimes.com/2017/02/20/opinion/trump-and-the-society-of-the-spectacle.html
+
+https://www.susanjfowler.com/blog/2017/2/19/reflecting-on-one-very-strange-year-at-uber
+
+https://daily.jstor.org/the-high-school-of-the-future-in-1917/
