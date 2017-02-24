@@ -23,3 +23,9 @@ http://shermandorn.com/wordpress/?p=8395
 https://theestablishment.co/when-a-woman-deletes-a-mans-comment-online-4da77027ac60#.utj2xbw6z
 
 http://www.newyorker.com/magazine/2017/02/27/why-facts-dont-change-our-minds
+
+https://theageofausterity.wordpress.com/2017/02/23/a-grammar-tutorial-with-secretary-of-education-betsy-devos/
+
+http://kottke.org/17/02/how-technology-amplifies-authoritarianism
+
+https://www.theatlantic.com/technology/archive/2017/02/the-singularity-in-the-toilet-stall/517551/
