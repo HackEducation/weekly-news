@@ -6,6 +6,20 @@ https://hapgood.us/2017/02/18/the-lead-hypothesis-and-a-gripe-about-mobile/
 
 http://www.roughtype.com/?p=7651
 
+http://www.newyorker.com/magazine/2017/03/06/trump-putin-and-the-new-cold-war
+
+http://religiondispatches.org/the-religious-origins-of-fake-news-and-alternative-facts/
+
+https://hapgood.us/2017/02/24/against-expressive-social-media/
+
+https://www.technologyreview.com/s/603731/nuclear-energy-startup-transatomic-backtracks-on-key-promises/
+
+http://redpincushion.us/blog/teaching-and-learning/digital-embodiment-constructing-and-deconstructing-the-body-part-1/
+
+http://www.theverge.com/2017/2/23/14714656/amazon-alexa-data-protection-court-free-speech
+
+https://www.programmableweb.com/news/amazon-alexa-has-more-skills-you-do/2017/02/24
+
 https://lareviewofbooks.org/article/forgotten-accounts/
 
 https://teachingindc.com/2017/02/20/experience-matters/
