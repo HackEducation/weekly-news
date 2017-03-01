@@ -15,3 +15,5 @@ http://www.newyorker.com/culture/cultural-comment/did-the-oscars-just-prove-that
 http://www.theglobeandmail.com/arts/books-and-media/book-reviews/bonnie-rochmans-the-gene-machine-and-mark-oconnells-to-be-a-machine-reviewed-matters-of-life-and-death/article34127614/
 
 http://text-patterns.thenewatlantis.com/2017/02/lecturing-bodily-presence-neoliberalism.html
+
+http://www.eater.com/2017/2/28/14753248/trump-steak-well-done-ketchup-personality
