@@ -1,8 +1,16 @@
 ## HEWN, No. 203
 
-https://www.buzzfeed.com/davidmack/defining-merriam-webster?utm_term=.rlb12LGX9#.pr67ZPjKl
+https://www.buzzfeed.com/davidmack/defining-merriam-webster
+
+http://coreyrobin.com/2017/03/01/political-criticism-in-the-age-of-trump-a-how-to/
+
+https://theageofausterity.wordpress.com/2017/03/01/the-pivot-to-presidential/
+
+https://bryanalexander.org/2017/03/01/the-very-worst-thing-written-about-adjuncts-and-tenure-in-2017/
 
 http://alex-reid.net/2017/02/universities-politics-devoss-and-conservatives.html
+
+https://www.washingtonpost.com/news/the-switch/wp/2017/03/01/what-the-world-wide-web-of-the-1990s-can-teach-us-about-internet-policy-today/
 
 https://www.lrb.co.uk/blog/2017/02/24/sherry-turkle/remembering-seymour-papert/
 
