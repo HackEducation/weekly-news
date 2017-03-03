@@ -8,6 +8,8 @@ https://theageofausterity.wordpress.com/2017/03/01/the-pivot-to-presidential/
 
 https://bryanalexander.org/2017/03/01/the-very-worst-thing-written-about-adjuncts-and-tenure-in-2017/
 
+http://thefederalist.com/2017/03/02/everything-betsy-devos-said-about-historically-black-colleges-was-correct/
+
 http://alex-reid.net/2017/02/universities-politics-devoss-and-conservatives.html
 
 http://redpincushion.us/blog/i-cant-categorize-this/it-should-be-necessary-to-start-critical-digital-pedagogy-in-troubled-political-times/
