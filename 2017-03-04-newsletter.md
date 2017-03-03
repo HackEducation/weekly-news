@@ -10,6 +10,12 @@ https://bryanalexander.org/2017/03/01/the-very-worst-thing-written-about-adjunct
 
 http://alex-reid.net/2017/02/universities-politics-devoss-and-conservatives.html
 
+http://redpincushion.us/blog/i-cant-categorize-this/it-should-be-necessary-to-start-critical-digital-pedagogy-in-troubled-political-times/
+
+https://theoutline.com/post/1181/liberals-your-harry-potter-political-references-are-embarrassing
+
+http://blogs.swarthmore.edu/burke/blog/2017/03/02/style-and-substance/
+
 https://www.washingtonpost.com/news/the-switch/wp/2017/03/01/what-the-world-wide-web-of-the-1990s-can-teach-us-about-internet-policy-today/
 
 https://www.lrb.co.uk/blog/2017/02/24/sherry-turkle/remembering-seymour-papert/
