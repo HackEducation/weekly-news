@@ -2,6 +2,14 @@
 
 https://www.buzzfeed.com/davidmack/defining-merriam-webster
 
+https://www.schneier.com/blog/archives/2017/03/hacking_marconi_1.html
+
+https://www.nytimes.com/2017/03/03/technology/uber-greyball-program-evade-authorities.html
+
+https://www.theatlantic.com/politics/archive/2017/03/the-fbi-says-its-found-one-of-the-jcc-bomb-threat-culprits/518511/
+
+http://plashingvole.blogspot.co.uk/2017/03/a-lefty-academic-writes-leftily-about.html
+
 http://coreyrobin.com/2017/03/01/political-criticism-in-the-age-of-trump-a-how-to/
 
 https://theageofausterity.wordpress.com/2017/03/01/the-pivot-to-presidential/
