@@ -5,3 +5,20 @@ https://aeon.co/essays/most-of-the-time-innovators-don-t-move-fast-and-break-thi
 https://www.nytimes.com/2017/03/04/business/dealbook/blockchain-ibm-bitcoin.html
 
 https://www.buzzfeed.com/jessicafurseth/i-dont-have-cancer-yet
+
+https://transformativespaces.org/2017/03/08/on-strike-critiques-and-beating-all-meaning-out-of-the-word-privilege/
+
+https://www.citylab.com/housing/2017/03/detroit-foreclosure-housing-crisis-loveland-open-data/517737/
+
+https://twitter.com/i/web/status/839637621903020033
+
+https://wearethemutants.com/2017/03/06/pork-chops-and-apple-sauce-appraising-the-brady-bunchs-art-collection/amp/
+
+http://gizmodo.com/googles-algorithm-is-lying-to-you-about-onions-and-blam-1793057789
+
+http://www.slate.com/articles/technology/future_tense/2017/03/google_s_featured_snippets_and_uber_s_self_driving_slip_ups_point_to_a_problem.html
+
+https://www.nytimes.com/2017/03/08/business/how-trump-became-the-first-silicon-valley-president.html
+
+https://twitter.com/maryellenmurr/status/839599697014702080/photo/1
+
