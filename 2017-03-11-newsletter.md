@@ -22,3 +22,10 @@ https://www.nytimes.com/2017/03/08/business/how-trump-became-the-first-silicon-v
 
 https://twitter.com/maryellenmurr/status/839599697014702080/photo/1
 
+https://www.nytimes.com/2017/03/09/opinion/the-truth-about-the-wikileaks-cia-cache.html
+
+https://twitter.com/jesse_hirsch/status/839946618833100801
+
+https://www.theatlantic.com/magazine/archive/2017/04/pleistocene-park/517779/
+
+http://www.roughtype.com/?p=7709
