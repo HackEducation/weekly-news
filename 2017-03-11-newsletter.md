@@ -10,6 +10,8 @@ https://transformativespaces.org/2017/03/08/on-strike-critiques-and-beating-all-
 
 https://www.citylab.com/housing/2017/03/detroit-foreclosure-housing-crisis-loveland-open-data/517737/
 
+http://www.motherjones.com/politics/2017/03/silicon-valley-tech-alt-right-racism-misogyny
+
 https://twitter.com/i/web/status/839637621903020033
 
 https://wearethemutants.com/2017/03/06/pork-chops-and-apple-sauce-appraising-the-brady-bunchs-art-collection/amp/
