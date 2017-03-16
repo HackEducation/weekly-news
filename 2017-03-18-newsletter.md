@@ -17,3 +17,5 @@ http://jasongriffey.net/wp/2017/03/14/personal-international-infosec/
 http://stevendkrause.com/2017/03/13/bruni-should-visit-and-write-about-the-other-99/
 
 https://ar.al/notes/we-didnt-lose-control-it-was-stolen/
+
+https://hapgood.us/2017/03/16/two-feeds-two-scarcities/
