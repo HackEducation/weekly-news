@@ -19,3 +19,13 @@ http://stevendkrause.com/2017/03/13/bruni-should-visit-and-write-about-the-other
 https://ar.al/notes/we-didnt-lose-control-it-was-stolen/
 
 https://hapgood.us/2017/03/16/two-feeds-two-scarcities/
+
+http://www.yasminnair.net/content/bitches-capitalism-my-speech-international-working-womens-day-march-8
+
+http://whatever.scalzi.com/2017/03/16/the-double-bubble/
+
+https://www.theguardian.com/uk-news/2017/mar/16/what-happens-when-queen-elizabeth-dies-london-bridge
+
+http://www.theverge.com/2017/2/28/14763632/spacex-private-moon-flight-price-cost-estimate-nasa-space-adventures
+
+https://www.insidehighered.com/blogs/just-visiting/my-after-academia-role-models
