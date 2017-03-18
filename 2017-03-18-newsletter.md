@@ -2,6 +2,8 @@
 
 https://www.technologyreview.com/s/603746/the-war-on-the-disturbingly-real-trolls-in-virtual-reality/
 
+http://robots.hackeducation.com/2017/03/18/week-in-robots
+
 https://www.insidehighered.com/blogs/just-visiting/political-correctness-new-campus-religion
 
 http://seanmichaelmorris.com/deeply-aggrieved/
