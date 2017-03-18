@@ -6,6 +6,12 @@ https://www.insidehighered.com/blogs/just-visiting/political-correctness-new-cam
 
 http://seanmichaelmorris.com/deeply-aggrieved/
 
+https://theestablishment.co/welcome-to-the-anti-racism-movement-heres-what-you-ve-missed-711089cb7d34#.8hv1iilqn
+
+http://www.thetattooedprof.com/2017/03/16/middlebury-murray-and-the-problem-of-false-equivalence/ (See also John Pat Leary)
+
+http://www.newyorker.com/magazine/2017/03/27/the-reclusive-hedge-fund-tycoon-behind-the-trump-presidency
+
 https://medium.com/kang-blog/the-great-liberal-freakout-of-2017-3c4cb93fd0c9#.8ipg9m1at
 
 http://hazlitt.net/feature/worry-i-no-longer-remember-living-without
