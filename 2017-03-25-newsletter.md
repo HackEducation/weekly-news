@@ -4,6 +4,8 @@ https://mobile.nytimes.com/2017/03/14/magazine/if-everything-can-be-weaponized-w
 
 https://www.theatlantic.com/science/archive/2017/03/kea-parrot-laughter-play-hahahahahaha-lolz/520089/
 
+https://www.wired.com/2017/03/silicon-valley-rather-cure-death-make-life-worth-living/
+
 https://www.nytimes.com/2017/03/21/magazine/platform-companies-are-becoming-more-powerful-but-what-exactly-do-they-want.html
 
 https://www.buzzfeed.com/annehelenpetersen/who-should-pay-for-evan-karrs-heart?utm_term=.jlKOqyNYl#.yr7N8PqVv
