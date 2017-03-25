@@ -2,6 +2,10 @@
 
 https://mobile.nytimes.com/2017/03/14/magazine/if-everything-can-be-weaponized-what-should-we-fear.html
 
+http://www.boundary2.org/2017/03/frank-pasquale-relocating-the-knowledge-problem-preserving-professional-judgment-in-an-era-of-metric-power/
+
+http://alex-reid.net/2017/03/what-doeswould-data-rhetoric-look-like.html
+
 https://www.theatlantic.com/science/archive/2017/03/kea-parrot-laughter-play-hahahahahaha-lolz/520089/
 
 https://www.wired.com/2017/03/silicon-valley-rather-cure-death-make-life-worth-living/
