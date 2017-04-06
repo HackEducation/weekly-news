@@ -14,6 +14,8 @@ http://followersoftheapocalyp.se/oer17/
 
 http://reallifemag.com/stuck-in-the-middle/
 
+http://reallifemag.com/computer-moves/
+
 http://flowingdata.com/2017/04/04/visual-simulations-to-show-uber-game-strategies/
 
 https://www.nytimes.com/interactive/2017/04/02/technology/uber-drivers-psychological-tricks.html?smid=tw-share&_r=0
