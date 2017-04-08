@@ -1,5 +1,9 @@
 ## HEWN, No. 208
 
+http://bavatuesdays.com/i-dont-need-permission-to-be-open/
+
+http://hypervisible.com/post/shaming-and-framing-imagining-students-at-an-education-conference/
+
 http://nymag.com/thecut/2017/03/what-james-jackson-reveals-about-mgtow-and-the-alt-right.html
 
 https://www.technologyreview.com/s/604035/uber-is-engaged-in-psychological-warfare-with-its-drivers/
