@@ -11,3 +11,9 @@ http://www.nybooks.com/articles/2017/04/20/kahneman-tversky-invisible-mind-manip
 https://www.buzzfeed.com/venessawong/burger-kings-new-ad-will-hijack-your-google-home?utm_term=.pl2D26pz#.inBZpEbP
 
 http://sappingattention.blogspot.com/2017/04/the-history-of-looking-at-data.html
+
+http://www.blog.radiator.debacle.us/2017/04/if-you-walk-in-someone-elses-shoes-then.html
+
+https://backchannel.com/how-google-book-search-got-lost-c2d2cf77121d
+
+https://www.dissentmagazine.org/article/false-promise-universal-basic-income-andy-stern-ruger-bregman
