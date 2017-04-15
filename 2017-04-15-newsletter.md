@@ -9,3 +9,5 @@ https://www.educause.edu/interactive/2017/4/back-to-the-future-of-edtech/
 http://www.nybooks.com/articles/2017/04/20/kahneman-tversky-invisible-mind-manipulators/
 
 https://www.buzzfeed.com/venessawong/burger-kings-new-ad-will-hijack-your-google-home?utm_term=.pl2D26pz#.inBZpEbP
+
+http://sappingattention.blogspot.com/2017/04/the-history-of-looking-at-data.html
