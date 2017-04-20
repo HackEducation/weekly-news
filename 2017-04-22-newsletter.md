@@ -2,6 +2,12 @@
 
 http://www.economist.com/news/leaders/21720621-venture-capitalists-are-bright-clannish-and-almost-exclusively-male-silicon-valleys-sexism
 
+http://www.huffingtonpost.com/entry/practicing-adas-poetical-science_us_58f4e31fe4b048372700da1f
+
+https://medium.com/@kurtgessler/facebooks-algorithm-isn-t-surfacing-one-third-of-our-posts-and-it-s-getting-worse-68e37ee025a3
+
+http://www.thestranger.com/features/2017/04/19/25082450/the-heart-of-whiteness-ijeoma-oluo-interviews-rachel-dolezal-the-white-woman-who-identifies-as-black
+
 http://text-patterns.thenewatlantis.com/2017/04/anthropocene-theology.html
 
 https://www.buzzfeed.com/nitashatiku/how-mark-zuckerberg-is-writing-the-playbook-for-the-modern?utm_term=.ehdBMgn6#.hfnwR72O
