@@ -2,6 +2,8 @@
 
 http://www.economist.com/news/leaders/21720621-venture-capitalists-are-bright-clannish-and-almost-exclusively-male-silicon-valleys-sexism
 
+http://www.freep.com/story/news/local/michigan/macomb/2016/11/04/kid-rock-macomb-county-house/93299716/
+
 https://www.technologyreview.com/s/604254/with-neuralink-elon-musk-promises-human-to-human-telepathy-dont-believe-it/
 
 https://www.buzzfeed.com/annehelenpetersen/blessed-be-the-fruit
