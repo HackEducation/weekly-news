@@ -2,6 +2,12 @@
 
 http://www.economist.com/news/leaders/21720621-venture-capitalists-are-bright-clannish-and-almost-exclusively-male-silicon-valleys-sexism
 
+https://www.technologyreview.com/s/604254/with-neuralink-elon-musk-promises-human-to-human-telepathy-dont-believe-it/
+
+https://www.buzzfeed.com/annehelenpetersen/blessed-be-the-fruit
+
+http://idlewords.com/talks/build_a_better_monster.htm
+
 http://www.huffingtonpost.com/entry/practicing-adas-poetical-science_us_58f4e31fe4b048372700da1f
 
 https://medium.com/@kurtgessler/facebooks-algorithm-isn-t-surfacing-one-third-of-our-posts-and-it-s-getting-worse-68e37ee025a3
