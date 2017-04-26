@@ -20,4 +20,8 @@ https://blog.bolt.io/heres-why-juicero-s-press-is-so-expensive-6add74594e50
 
 http://www.publicbooks.org/jill-lepore-on-the-challenge-of-explaining-things/
 
+https://www.bloomberg.com/news/articles/2017-04-25/with-secret-airship-sergey-brin-also-wants-to-fly
+
+https://boingboing.net/2017/04/24/you-wont-need-a-pilots-lic.html
+
 http://www.longviewoneducation.org/the-mindset-mindset-passion-and-grit-as-emotional-labour/
