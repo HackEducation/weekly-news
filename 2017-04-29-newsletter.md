@@ -4,6 +4,8 @@ https://www.nytimes.com/2017/04/23/technology/travis-kalanick-pushes-uber-and-hi
 
 http://reallifemag.com/updating-our-nightmares/
 
+https://motherboard.vice.com/en_us/article/amazon-echo-look-bedroom-camera
+
 http://www.gq.com/story/getting-hacked-is-easier-and-dumber-than-you-think-it-is
 
 https://www.mcsweeneys.net/articles/introducing-fitbigot
