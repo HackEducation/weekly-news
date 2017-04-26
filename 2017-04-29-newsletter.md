@@ -4,6 +4,12 @@ https://www.nytimes.com/2017/04/23/technology/travis-kalanick-pushes-uber-and-hi
 
 http://reallifemag.com/updating-our-nightmares/
 
+http://www.gq.com/story/getting-hacked-is-easier-and-dumber-than-you-think-it-is
+
+https://www.mcsweeneys.net/articles/introducing-fitbigot
+
+https://whitecollar.thenewinquiry.com/
+
 http://seanmichaelmorris.com/tobacco-and-patchouli-writing-about-teaching/
 
 http://bostonreview.net/class-inequality/claude-s-fischer-inequality-about-access-public-goods-not-income
