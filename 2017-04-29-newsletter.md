@@ -2,6 +2,12 @@
 
 https://www.nytimes.com/2017/04/23/technology/travis-kalanick-pushes-uber-and-himself-to-the-precipice.html
 
+https://www.theatlantic.com/technology/archive/2017/04/wikipedia-the-newspaper/524211/
+
+https://www.wired.com/2017/04/trump-needs-tech-least-much-wall-along-border/
+
+https://motherboard.vice.com/en_us/article/amazon-echo-look-bedroom-camera
+
 http://reallifemag.com/updating-our-nightmares/
 
 https://motherboard.vice.com/en_us/article/amazon-echo-look-bedroom-camera
