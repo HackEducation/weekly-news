@@ -2,6 +2,10 @@
 
 https://www.nytimes.com/2017/04/23/technology/travis-kalanick-pushes-uber-and-himself-to-the-precipice.html
 
+https://theoutline.com/post/1439/machine-learning-is-racist-because-the-internet-is-racist
+
+https://www.insidehighered.com/digital-learning/article/2017/04/28/clay-christensen-sticks-predictions-massive-college-closures
+
 https://www.theatlantic.com/technology/archive/2017/04/wikipedia-the-newspaper/524211/
 
 https://www.wired.com/2017/04/trump-needs-tech-least-much-wall-along-border/
