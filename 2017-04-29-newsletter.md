@@ -10,6 +10,14 @@ https://motherboard.vice.com/en_us/article/amazon-echo-look-bedroom-camera
 
 http://reallifemag.com/updating-our-nightmares/
 
+https://www.wired.com/2017/04/the-genial-brilliant-candy-loving-hackers-of-stetson-west/
+
+http://www.roughtype.com/?p=7831
+
+http://democracyjournal.org/arguments/the-untold-history-of-charter-schools/
+
+https://medium.com/@AnthroPunk/amazons-echo-look-we-re-going-a-long-way-back-baby-efa2b892a750
+
 https://motherboard.vice.com/en_us/article/amazon-echo-look-bedroom-camera
 
 http://www.gq.com/story/getting-hacked-is-easier-and-dumber-than-you-think-it-is
