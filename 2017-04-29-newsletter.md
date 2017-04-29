@@ -14,6 +14,8 @@ https://motherboard.vice.com/en_us/article/amazon-echo-look-bedroom-camera
 
 http://reallifemag.com/updating-our-nightmares/
 
+http://robots.hackeducation.com/2017/04/29/week-in-robots
+
 https://www.wired.com/2017/04/the-genial-brilliant-candy-loving-hackers-of-stetson-west/
 
 http://www.roughtype.com/?p=7831
