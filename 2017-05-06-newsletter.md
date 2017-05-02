@@ -15,3 +15,7 @@ https://www.nytimes.com/2017/04/30/business/traffic-light-fine.html?_r=2
 https://thefrailestthing.com/2017/05/01/a-form-of-madness/
 
 http://hazlitt.net/longreads/airbrushing-shittown
+
+http://strangehorizons.com/non-fiction/columns/freshly-rememberd-kirk-drift/
+
+http://www.otheringandbelonging.org/divided-and-platformed/
