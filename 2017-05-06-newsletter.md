@@ -19,3 +19,7 @@ http://hazlitt.net/longreads/airbrushing-shittown
 http://strangehorizons.com/non-fiction/columns/freshly-rememberd-kirk-drift/
 
 http://www.otheringandbelonging.org/divided-and-platformed/
+
+https://thenewinquiry.com/death-undone/
+
+http://theoatmeal.com/comics/believe
