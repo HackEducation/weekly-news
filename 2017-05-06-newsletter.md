@@ -23,3 +23,5 @@ http://www.otheringandbelonging.org/divided-and-platformed/
 https://thenewinquiry.com/death-undone/
 
 http://theoatmeal.com/comics/believe
+
+https://mic.com/articles/175136/women-in-tech-1000-names-no-more-all-male-panels-conferences#.rlroWpnXz
