@@ -16,6 +16,12 @@ https://thefrailestthing.com/2017/05/01/a-form-of-madness/
 
 http://hazlitt.net/longreads/airbrushing-shittown
 
+https://codeactsineducation.wordpress.com/2017/05/04/brain-data-neurotechnology-and-education/
+
+https://www.theatlantic.com/projects/can-technology-rescue-democracy/
+
+https://futurism.com/darpa-is-planning-to-hack-the-human-brain-to-let-us-upload-skills/
+
 http://strangehorizons.com/non-fiction/columns/freshly-rememberd-kirk-drift/
 
 http://www.otheringandbelonging.org/divided-and-platformed/
