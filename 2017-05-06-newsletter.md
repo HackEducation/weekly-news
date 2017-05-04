@@ -4,6 +4,8 @@ http://text-patterns.thenewatlantis.com/2017/05/sharing-opposite-of-caring.html 
 
 https://xkcd.com/1831/
 
+http://www.locusmag.com/Perspectives/2017/05/cory-doctorow-weaponized-narrative/
+
 https://www.insidehighered.com/news/2017/05/02/jefferson-lecture-martha-nussbaum-discusses-anger-and-politics-blame
 
 https://www.bloomberg.com/view/articles/2017-05-02/how-the-robot-apocalypse-will-go-down
