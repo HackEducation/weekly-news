@@ -2,6 +2,8 @@
 
 http://text-patterns.thenewatlantis.com/2017/05/mobility-bicycles-cyborgs.html
 
+http://www.gq.com/story/dwayne-johnson-for-president-cover
+
 http://text-patterns.thenewatlantis.com/2017/05/revisiting-myth-and-myth-making.html
 
 https://broadly.vice.com/en_us/article/ivanka-trump-women-who-work-review
