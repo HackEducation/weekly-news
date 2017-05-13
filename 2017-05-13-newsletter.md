@@ -4,6 +4,8 @@ http://text-patterns.thenewatlantis.com/2017/05/mobility-bicycles-cyborgs.html
 
 http://www.gq.com/story/dwayne-johnson-for-president-cover
 
+http://www.roughtype.com/?p=7866
+
 https://www.buzzfeed.com/stevenperlberg/a-sony-hack-story-has-been-quietly-deleted-from-gawker?utm_term=.laxNG5pK#.tfaV1xP5
 
 http://text-patterns.thenewatlantis.com/2017/05/revisiting-myth-and-myth-making.html
