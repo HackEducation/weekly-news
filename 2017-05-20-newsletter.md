@@ -13,3 +13,5 @@ https://www.theatlantic.com/magazine/archive/2017/06/lolas-story/524490/
 https://thesocietypages.org/cyborgology/2017/05/16/does-technology-want/
 
 https://www.propublica.org/article/any-half-decent-hacker-could-break-into-mar-a-lago
+
+http://kottke.org/17/05/how-the-internet-has-changed-in-the-past-10-years
