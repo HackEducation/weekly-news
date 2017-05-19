@@ -1,5 +1,9 @@
 ## HEWN, No. 114
 
+https://nplusonemag.com/issue-28/reviews/monstrous-duplicated-potent/
+
+http://redpincushion.us/blog/teaching-and-learning/reclaiming-impact/
+
 http://www.latimes.com/business/hollywood/la-fi-tn-jack-dorsey-trump-20170514-story.html
 
 https://datasociety.net/output/media-manipulation-and-disinfo-online/
