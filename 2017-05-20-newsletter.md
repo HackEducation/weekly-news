@@ -21,3 +21,7 @@ https://www.propublica.org/article/any-half-decent-hacker-could-break-into-mar-a
 http://kottke.org/17/05/how-the-internet-has-changed-in-the-past-10-years
 
 http://reallifemag.com/sick-of-myself/
+
+http://www.chronicle.com/article/What-Is-Seth-Abramson-Trying/240071
+
+https://medium.com/@blaisea/physiognomys-new-clothes-f2d4b59fdd6a
