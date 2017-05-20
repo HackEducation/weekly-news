@@ -25,3 +25,9 @@ http://reallifemag.com/sick-of-myself/
 http://www.chronicle.com/article/What-Is-Seth-Abramson-Trying/240071
 
 https://medium.com/@blaisea/physiognomys-new-clothes-f2d4b59fdd6a
+
+https://medium.com/@MedicalReport/ancestry-com-takes-dna-ownership-rights-from-customers-and-their-relatives-dbafeed02b9e
+
+https://psmag.com/news/goodbye-to-the-greatest-show-on-earth
+
+http://boingboing.net/2017/05/20/breedables-vs-drm.html
