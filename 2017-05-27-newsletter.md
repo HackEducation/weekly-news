@@ -1,5 +1,9 @@
 ## HEWN, No. 115
 
+http://www.newyorker.com/humor/daily-shouts/eulogy-for-america
+
+https://www.recode.net/2017/5/25/15689094/mossberg-final-column
+
 http://idlewords.com/talks/notes_from_an_emergency.htm
 
 https://www.theguardian.com/environment/2017/may/22/california-conspiracy-theorist-farmers-chemtrails
