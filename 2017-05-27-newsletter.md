@@ -19,3 +19,7 @@ https://medium.com/@dan.greene10/it-runs-deep-and-we-cant-talk-it-out-on-campus-
 https://redux.slate.com/cover-stories/2017/05/daryl-bem-proved-esp-is-real-showed-science-is-broken.html
 
 https://jacobinmag.com/2017/05/stephen-jay-gould-science-race-evolution-climate-change
+
+https://www.washingtonpost.com/posteverything/wp/2017/05/26/betsy-devos-neurocore/
+
+https://www.theverge.com/2014/7/17/5893221/soylent-survivor-one-month-living-on-lab-made-liquid-nourishment
