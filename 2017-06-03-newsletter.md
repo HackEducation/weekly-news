@@ -3,3 +3,5 @@
 http://www.bbc.com/news/business-39947942
 
 https://www.engadget.com/2017/05/26/the-facebook-president-and-zucks-racist-rulebook/
+
+https://dmlcentral.net/platform-capitalism-classroom/
