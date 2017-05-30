@@ -5,3 +5,7 @@ http://www.bbc.com/news/business-39947942
 https://www.engadget.com/2017/05/26/the-facebook-president-and-zucks-racist-rulebook/
 
 https://dmlcentral.net/platform-capitalism-classroom/
+
+https://thefrailestthing.com/2017/05/29/the-deforming-gaze-we-encounter-on-social-media/
+
+https://www.theatlantic.com/technology/archive/2012/09/how-google-builds-its-maps-and-what-it-means-for-the-future-of-everything/261913/
