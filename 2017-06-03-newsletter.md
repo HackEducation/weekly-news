@@ -13,3 +13,5 @@ https://www.theatlantic.com/technology/archive/2012/09/how-google-builds-its-map
 https://backchannel.com/how-the-trendiest-grilled-cheese-venture-got-burnt-aa627b0c7ae1
 
 http://lithub.com/rebecca-solnit-the-loneliness-of-donald-trump/
+
+https://lareviewofbooks.org/article/the-awful-pleasures-of-spiritual-pornography/
