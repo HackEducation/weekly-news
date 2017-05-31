@@ -15,3 +15,5 @@ https://backchannel.com/how-the-trendiest-grilled-cheese-venture-got-burnt-aa627
 http://lithub.com/rebecca-solnit-the-loneliness-of-donald-trump/
 
 https://lareviewofbooks.org/article/the-awful-pleasures-of-spiritual-pornography/
+
+https://thefrailestthing.com/2017/05/31/circles-of-affinity/
