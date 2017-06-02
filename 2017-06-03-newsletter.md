@@ -16,4 +16,8 @@ http://lithub.com/rebecca-solnit-the-loneliness-of-donald-trump/
 
 https://lareviewofbooks.org/article/the-awful-pleasures-of-spiritual-pornography/
 
+https://www.buzzfeed.com/annehelenpetersen/dont-mess-with-post-menopausal-women
+
+https://www.themarshallproject.org/2017/05/31/downloading-a-nightmare
+
 https://thefrailestthing.com/2017/05/31/circles-of-affinity/
