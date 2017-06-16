@@ -15,3 +15,7 @@ http://www.atlasobscura.com/articles/cyoa-choose-your-own-adventure-maps
 http://hackeducation.com/2017/06/15/robots-raising-children
 
 https://longreads.com/2017/06/13/a-sociology-of-the-smartphone/
+
+https://www.bloomberg.com/view/articles/2017-06-14/what-s-wrong-with-letting-tech-run-our-schools
+
+http://voices.uchicago.edu/religionculture/2017/06/14/813/
