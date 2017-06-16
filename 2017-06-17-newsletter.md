@@ -19,3 +19,5 @@ https://longreads.com/2017/06/13/a-sociology-of-the-smartphone/
 https://www.bloomberg.com/view/articles/2017-06-14/what-s-wrong-with-letting-tech-run-our-schools
 
 http://voices.uchicago.edu/religionculture/2017/06/14/813/
+
+https://www.theguardian.com/technology/2017/jun/16/facebook-moderators-identity-exposed-terrorist-groups
