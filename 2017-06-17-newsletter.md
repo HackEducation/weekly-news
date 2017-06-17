@@ -21,3 +21,7 @@ https://www.bloomberg.com/view/articles/2017-06-14/what-s-wrong-with-letting-tec
 http://voices.uchicago.edu/religionculture/2017/06/14/813/
 
 https://www.theguardian.com/technology/2017/jun/16/facebook-moderators-identity-exposed-terrorist-groups
+
+https://fredwatters.com/post/hey-dad-hows-it-going/
+
+https://theageofausterity.wordpress.com/2017/06/16/decoding-build-the-wall-what-liberal-critics-miss/
