@@ -7,3 +7,7 @@ https://thenewinquiry.com/you-probably-think-this-bot-is-about-you/
 https://fredrikdeboer.com/2017/06/21/public-services-are-not-an-atm/
 
 pearson timeline
+
+https://blog.jonudell.net/2017/06/22/dumb-servers-for-personal-clouds/
+
+http://hackeducation.com/2017/06/22/fitbit
