@@ -11,3 +11,5 @@ pearson timeline
 https://blog.jonudell.net/2017/06/22/dumb-servers-for-personal-clouds/
 
 http://hackeducation.com/2017/06/22/fitbit
+
+https://www.villagevoice.com/2017/06/20/heres-what-the-new-transformers-movie-is-like/
