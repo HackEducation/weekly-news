@@ -21,3 +21,7 @@ http://redpincushion.us/blog/teaching-and-learning/locks-on-our-bridges-critical
 https://www.villagevoice.com/2017/06/20/heres-what-the-new-transformers-movie-is-like/
 
 http://robots.hackeducation.com/2017/06/24/week-in-robots
+
+http://predictions.contrafabulists.com/2017/06/24/week-in-predictions
+
+http://www.bbc.com/news/av/technology-40372053/could-xprize-tablets-replace-teachers-in-tanzania
