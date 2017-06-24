@@ -12,6 +12,8 @@ https://blog.jonudell.net/2017/06/22/dumb-servers-for-personal-clouds/
 
 http://hackeducation.com/2017/06/22/fitbit
 
+http://www.bbc.com/news/av/technology-40372053/could-xprize-tablets-replace-teachers-in-tanzania
+
 https://twitter.com/yashar/status/878437465282953216
 
 http://redpincushion.us/blog/teaching-and-learning/locks-on-our-bridges-critical-and-generative-lenses-on-open-education/
