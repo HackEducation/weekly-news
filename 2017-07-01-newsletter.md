@@ -17,3 +17,5 @@ https://librarianshipwreck.wordpress.com/2017/06/29/its-time-to-fix-things-a-rev
 http://boingboing.net/2017/06/28/michael-bond-creator-of-paddi.html
 
 https://youtu.be/6_35a7sn6ds
+
+https://www.propublica.org/article/facebook-hate-speech-censorship-internal-documents-algorithms
