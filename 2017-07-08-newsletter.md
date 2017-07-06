@@ -1,5 +1,11 @@
 ## HEWN, No. 211
 
+http://www.longviewoneducation.org/frontier-notes-on-metaphors-the-digital-as-landscape-and-playground/
+
+http://www.zephoria.org/thoughts/archives/2017/07/05/tech-culture.html
+
+https://theawl.com/did-amway-create-the-gig-economy-3a0fc916b847
+
 http://musicfordeckchairs.com/blog/2017/07/02/who-we-are-to-each-other/
 
 http://leighblackall.blogspot.com/2017/07/canvas-undead-lms-and-consolidation-of.html
