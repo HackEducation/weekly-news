@@ -15,3 +15,5 @@ http://gizmodo.com/the-government-says-it-wasted-millions-of-dollars-dress-17963
 http://quietbabylon.com/2017/cassandra-plays-the-stock-market/
 
 http://alex-reid.net/2017/07/politics-free-speech-and-academic-freedom.html
+
+http://www.boundary2.org/2017/07/david-thomas-on-no-platforming/
