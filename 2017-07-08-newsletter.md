@@ -17,3 +17,5 @@ http://quietbabylon.com/2017/cassandra-plays-the-stock-market/
 http://alex-reid.net/2017/07/politics-free-speech-and-academic-freedom.html
 
 http://www.boundary2.org/2017/07/david-thomas-on-no-platforming/
+
+http://www.vanityfair.com/news/2017/07/the-wtf-plan-to-disrupt-politics-is-everything-thats-wrong-with-silicon-valley
