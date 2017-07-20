@@ -8,6 +8,8 @@ LA Times article on USC Dean
 
 R Kelly
 
+https://hapgood.us/2017/07/19/information-underload/
+
 https://blog.valerieaurora.org/2017/07/18/the-al-capone-theory-of-sexual-harassment/
 
 http://www.newyorker.com/books/page-turner/from-the-mixed-up-files-of-mrs-basil-e-frankweiler-fifty-years-later
