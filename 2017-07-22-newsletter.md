@@ -8,6 +8,10 @@ LA Times article on USC Dean
 
 R Kelly
 
+https://ageofrevolutions.com/2017/07/17/paulo-freire-pedagogy-of-the-oppressed-and-a-revolutionary-praxis-for-education-part-i/
+
+https://www.nytimes.com/2017/07/22/technology/one-family-many-revolutions-from-black-panthers-to-silicon-valley-to-trump.html
+
 https://hapgood.us/2017/07/19/information-underload/
 
 https://www.theguardian.com/technology/2017/jul/20/elon-musk-hyperloop-verbal-government-approval
