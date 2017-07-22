@@ -8,6 +8,10 @@ LA Times article on USC Dean
 
 R Kelly
 
+https://www.theatlantic.com/technology/archive/2017/07/marion-tinsley-checkers/534111/
+
+https://lareviewofbooks.org/article/silicon-valleys-bonfire-of-the-vainglorious/
+
 https://ageofrevolutions.com/2017/07/17/paulo-freire-pedagogy-of-the-oppressed-and-a-revolutionary-praxis-for-education-part-i/
 
 https://www.nytimes.com/2017/07/22/technology/one-family-many-revolutions-from-black-panthers-to-silicon-valley-to-trump.html
