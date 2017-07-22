@@ -18,6 +18,8 @@ https://www.theguardian.com/technology/2017/jul/20/elon-musk-hyperloop-verbal-go
 
 https://limn.it/utopian-hacks/?doing_wp_cron%1498868053.3908839225769042968750
 
+https://www.buzzfeed.com/williamalden/these-inspirational-quotes-from-an-uber-investor-are-truly
+
 https://theageofausterity.wordpress.com/2017/07/20/keywords-for-the-age-of-austerity-30-thought-leader/
 
 https://opencontent.org/blog/archives/5103
