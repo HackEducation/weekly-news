@@ -17,3 +17,9 @@ http://www.roughtype.com/?p=7975
 http://www.vanityfair.com/news/2017/07/department-of-energy-risks-michael-lewis
 
 http://ncase.me/trust/
+
+http://boingboing.net/2017/07/27/link-rot-only-half-of-the-lin.html
+
+https://www.theguardian.com/technology/2017/jul/27/facebook-free-basics-developing-markets
+
+http://www.newyorker.com/news/ryan-lizza/anthony-scaramucci-called-me-to-unload-about-white-house-leakers-reince-priebus-and-steve-bannon
