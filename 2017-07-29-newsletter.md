@@ -23,3 +23,7 @@ http://boingboing.net/2017/07/27/link-rot-only-half-of-the-lin.html
 https://www.theguardian.com/technology/2017/jul/27/facebook-free-basics-developing-markets
 
 http://www.newyorker.com/news/ryan-lizza/anthony-scaramucci-called-me-to-unload-about-white-house-leakers-reince-priebus-and-steve-bannon
+
+https://theageofausterity.wordpress.com/2017/07/28/a-moment-of-silence-for-scaramuccis-twitter-bio/
+
+http://tinyletter.com/jomc/letters/things-weren-t-better-then-they-just-spent-less-time-nostalgic-for-the-past
