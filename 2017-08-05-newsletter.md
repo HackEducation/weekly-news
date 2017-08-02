@@ -9,3 +9,5 @@ https://clembowlesblog.wordpress.com/2017/07/31/those-words/amp/
 http://www.veletsianos.com/2017/07/31/diversity-justice-democratization-in-open-education/
 
 http://trumpgolfcount.com/
+
+https://theageofausterity.wordpress.com/2017/08/01/the-scandal-of-campus-free-speech-bills/
