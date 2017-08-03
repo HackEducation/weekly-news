@@ -11,3 +11,7 @@ http://www.veletsianos.com/2017/07/31/diversity-justice-democratization-in-open-
 http://trumpgolfcount.com/
 
 https://theageofausterity.wordpress.com/2017/08/01/the-scandal-of-campus-free-speech-bills/
+
+http://www.politico.com/story/2017/08/02/zuckerberg-hires-former-clinton-pollster-joel-benenson-241265
+
+https://www.theguardian.com/technology/2017/jul/31/extremists-neo-nazis-facebook-groups-social-media-islam
