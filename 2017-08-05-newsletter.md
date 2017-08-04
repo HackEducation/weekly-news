@@ -15,3 +15,7 @@ https://theageofausterity.wordpress.com/2017/08/01/the-scandal-of-campus-free-sp
 http://www.politico.com/story/2017/08/02/zuckerberg-hires-former-clinton-pollster-joel-benenson-241265
 
 https://www.theguardian.com/technology/2017/jul/31/extremists-neo-nazis-facebook-groups-social-media-islam
+
+https://www.theverge.com/2017/8/3/16084248/patreon-profile-jack-conte-crowdfunding-art-politics-culture
+
+https://techcrunch.com/2017/08/02/another-black-activist-ijeoma-oluo-is-suspended-by-facebook-for-posting-about-racism/
