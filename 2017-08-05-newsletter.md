@@ -1,5 +1,9 @@
 ## HEWN, No. 225
 
+https://motherboard.vice.com/en_us/article/kb7eew/the-louder-the-monkey-the-smaller-its-balls-study-finds-42361364663309
+
+https://www.nytimes.com/2017/08/04/opinion/the-meaning-of-despacito-in-the-age-of-trump.html
+
 https://deangroom.wordpress.com/2017/07/30/did-someone-eat-the-last-screenager/
 
 https://www.ted.com/talks/tristan_harris_the_manipulative_tricks_tech_companies_use_to_capture_your_attention
