@@ -25,3 +25,5 @@ https://www.theverge.com/2017/8/3/16084248/patreon-profile-jack-conte-crowdfundi
 https://techcrunch.com/2017/08/02/another-black-activist-ijeoma-oluo-is-suspended-by-facebook-for-posting-about-racism/ (Find her Medium post)
 
 http://nymag.com/selectall/2017/06/theres-no-money-in-internet-culture.html
+
+Week in Robots, Hack Education Weekly News, Week in Predictions
