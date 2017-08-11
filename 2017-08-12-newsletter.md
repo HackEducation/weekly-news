@@ -11,3 +11,7 @@ https://www.wired.com/story/jeff-bezos-should-put-his-billions-into-libraries/
 https://www.usatoday.com/story/opinion/2017/08/08/my-google-and-facebook-investments-made-fortune-but-now-they-menace/543755001/
 
 https://xkcd.com/1873/
+
+https://nplusonemag.com/online-only/online-only/the-annihilator/
+
+https://www.theatlantic.com/science/archive/2017/08/annie-dillards-total-eclipse/536148/
