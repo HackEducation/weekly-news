@@ -15,3 +15,5 @@ https://xkcd.com/1873/
 https://nplusonemag.com/online-only/online-only/the-annihilator/
 
 https://www.theatlantic.com/science/archive/2017/08/annie-dillards-total-eclipse/536148/
+
+https://www.buzzfeed.com/charliewarzel/james-damore-google-anti-diversity-memo-pro-trump-media-hero
