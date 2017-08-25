@@ -13,3 +13,9 @@ https://www.wired.com/story/machines-taught-by-photos-learn-a-sexist-view-of-wom
 http://www.pajiba.com/book_reviews/did-this-book-buy-its-way-onto-the-new-york-times-bestseller-list.php
 
 https://www.jacobinmag.com/2017/08/prison-abolition-reform-mass-incarceration
+
+http://www.thedailybeast.com/the-insidious-libertarian-to-alt-right-pipeline
+
+http://pushpullfork.com/2017/08/omething-rotten-arizona/
+
+https://medium.com/@DevynSpringer/how-liberal-approaches-to-free-speech-protect-white-supremacists-online-and-in-person-7c903a294190
