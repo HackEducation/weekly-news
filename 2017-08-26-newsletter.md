@@ -19,3 +19,5 @@ http://www.thedailybeast.com/the-insidious-libertarian-to-alt-right-pipeline
 http://pushpullfork.com/2017/08/omething-rotten-arizona/
 
 https://medium.com/@DevynSpringer/how-liberal-approaches-to-free-speech-protect-white-supremacists-online-and-in-person-7c903a294190
+
+http://gizmodo.com/facebook-figured-out-my-family-secrets-and-it-wont-tel-1797696163
