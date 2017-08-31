@@ -19,3 +19,5 @@ http://www.realcleareducation.com/2017/08/31/google_is_coming_after_critics_in_a
 https://www.buzzfeed.com/mattstoller2/google-tried-to-shut-us-down?utm_term=.dg6xOpdb#.ioDbvgNY
 
 https://mathbabe.org/2017/08/30/look-whos-fighting-our-algorithmic-overlords/
+
+https://www.nytimes.com/2017/08/30/us/politics/eric-schmidt-google-new-america.html?_r=0
