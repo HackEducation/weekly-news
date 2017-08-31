@@ -13,3 +13,9 @@ http://er.educause.edu/articles/2017/8/digital-sanctuary-protection-and-refuge-o
 https://codeactsineducation.wordpress.com/2017/08/29/fast-psycho-policy/
 
 https://www.wired.com/2017/08/the-hotel-hacker/
+
+http://www.realcleareducation.com/2017/08/31/google_is_coming_after_critics_in_academia_and_journalism_44754.html
+
+https://www.buzzfeed.com/mattstoller2/google-tried-to-shut-us-down?utm_term=.dg6xOpdb#.ioDbvgNY
+
+https://mathbabe.org/2017/08/30/look-whos-fighting-our-algorithmic-overlords/
