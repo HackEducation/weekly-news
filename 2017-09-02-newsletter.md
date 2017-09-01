@@ -2,6 +2,14 @@
 
 http://musicfordeckchairs.com/blog/2017/08/28/all-the-routine-jobs/
 
+http://gizmodo.com/yes-google-uses-its-power-to-quash-ideas-it-doesn-t-li-1798646437
+
+https://blogs.swarthmore.edu/burke/blog/2017/08/14/when-in-truth-did-we-win-anything/
+
+https://newrepublic.com/article/144644/turns-algorithms-racist
+
+https://theintercept.com/2017/08/31/how-i-got-fired-from-a-d-c-think-tank-for-fighting-against-the-power-of-google/
+
 http://www.thedailybeast.com/peter-thiel-funds-unethical-offshore-herpes-vaccine-trial
 
 http://www.longviewoneducation.org/social-media-isnt-for-learning/
