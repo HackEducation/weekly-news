@@ -2,7 +2,7 @@
 
 http://musicfordeckchairs.com/blog/2017/08/28/all-the-routine-jobs/
 
-https://www.buzzfeed.com/kieselaymon/teaching-white-students-showed-me-the-difference-between?utm_term=.euwoW6bD#.efa1D4B2
+https://www.buzzfeed.com/kieselaymon/teaching-white-students-showed-me-the-difference-between
 
 http://gizmodo.com/yes-google-uses-its-power-to-quash-ideas-it-doesn-t-li-1798646437
 
