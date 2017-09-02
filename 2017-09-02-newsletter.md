@@ -1,5 +1,13 @@
 ## HEWN, No. 229
 
+https://www.nytimes.com/2017/09/02/technology/silicon-valley-teachers-tech.html
+
+https://www.mcsweeneys.net/articles/how-to-log-in-to-the-student-portal
+
+https://www.nytimes.com/2017/09/01/technology/juicero-start-up-shuts-down.html
+
+http://www.roughtype.com/?p=8078
+
 http://musicfordeckchairs.com/blog/2017/08/28/all-the-routine-jobs/
 
 https://www.buzzfeed.com/kieselaymon/teaching-white-students-showed-me-the-difference-between
