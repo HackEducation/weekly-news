@@ -1,5 +1,9 @@
 ## HEWN, No. 230
 
+https://www.nytimes.com/2017/09/03/upshot/to-understand-rising-inequality-consider-the-janitors-at-two-top-companies-then-and-now.html
+
+http://adanewmedia.org/2016/10/issue10-hicks/
+
 http://musicfordeckchairs.com/blog/2017/09/03/day-to-day/
 
 https://theguardian.com/technology/2017/sep/02/silicon-valley-humbled-schemes-dangerous
