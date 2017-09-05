@@ -13,3 +13,7 @@ http://www.thetattooedprof.com/2017/09/02/identity-politics-and-the-eternal-bana
 https://scatter.wordpress.com/2017/09/02/guest-post-legacy-admissions-vs-familial-capital-and-the-importance-of-precision/
 
 https://www.lrb.co.uk/v39/n16/john-lanchester/you-are-the-product
+
+https://entropymag.org/dreaming-of-oz-a-literacy-narrative/
+
+https://www.nytimes.com/2017/08/31/opinion/sunday/silicon-valley-work-life-balance-.html
