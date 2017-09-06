@@ -2,6 +2,16 @@
 
 https://www.nytimes.com/2017/09/03/upshot/to-understand-rising-inequality-consider-the-janitors-at-two-top-companies-then-and-now.html
 
+https://www.theguardian.com/commentisfree/2017/sep/05/donald-trump-dreamers-daca-carol-anderson?CMP=share_btn_tw
+
+http://www.bbc.co.uk/programmes/b092mbgk#play
+
+https://www.nytimes.com/2017/09/05/sports/baseball/boston-red-sox-stealing-signs-yankees.html
+
+https://twitter.com/emilyhughes/status/905133327702740995
+
+https://hapgood.us/2017/09/05/students-as-creators-and-the-capitalist-impulse/
+
 http://adanewmedia.org/2016/10/issue10-hicks/
 
 http://musicfordeckchairs.com/blog/2017/09/03/day-to-day/
