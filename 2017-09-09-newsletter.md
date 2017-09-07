@@ -1,5 +1,11 @@
 ## HEWN, No. 230
 
+https://www.theatlantic.com/magazine/archive/2017/10/the-first-white-president-ta-nehisi-coates/537909/
+
+http://hackeducation.com/2017/09/06/inequality-ethics-ed-tech
+
+http://www.vulture.com/2017/09/the-search-for-the-gallery-of-madame-liu-tsong.html
+
 https://www.nytimes.com/2017/09/03/upshot/to-understand-rising-inequality-consider-the-janitors-at-two-top-companies-then-and-now.html
 
 https://www.theguardian.com/commentisfree/2017/sep/05/donald-trump-dreamers-daca-carol-anderson?CMP=share_btn_tw
