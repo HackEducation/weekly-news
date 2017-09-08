@@ -2,6 +2,8 @@
 
 https://www.theatlantic.com/magazine/archive/2017/10/the-first-white-president-ta-nehisi-coates/537909/
 
+https://entropymag.org/name-tags-5-how-naming-my-familys-white-supremacy-led-me-to-change-my-own-name/
+
 http://hackeducation.com/2017/09/06/inequality-ethics-ed-tech
 
 http://www.vulture.com/2017/09/the-search-for-the-gallery-of-madame-liu-tsong.html
