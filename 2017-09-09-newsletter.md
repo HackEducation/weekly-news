@@ -1,5 +1,11 @@
 ## HEWN, No. 230
 
+https://www.newyorker.com/humor/daily-shouts/excerpts-from-the-all-girl-remake-of-lord-of-the-flies
+
+https://www.theatlantic.com/magazine/archive/2017/10/kurt-vonnegut-the-drone-king/537870/
+
+https://medium.com/@cjcmichel/how-russia-created-the-most-popular-texas-secession-page-on-facebook-fd4dfd05ee5c
+
 https://www.theatlantic.com/magazine/archive/2017/10/the-first-white-president-ta-nehisi-coates/537909/
 
 https://entropymag.org/name-tags-5-how-naming-my-familys-white-supremacy-led-me-to-change-my-own-name/
