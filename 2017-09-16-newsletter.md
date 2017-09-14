@@ -2,6 +2,16 @@
 
 https://thebaffler.com/outbursts/future-fail-silverman
 
+https://tressiemc.com/uncategorized/trump-the-intersectional-president/
+
+https://hapgood.us/2017/09/13/lets-tax-the-collection-and-storage-of-personal-information/
+
+https://www.themarshallproject.org/2017/09/13/from-prison-to-ph-d-the-redemption-and-rejection-of-michelle-jones#.Eu00NHxZE
+
+https://www.wired.com/story/startups-are-finally-taking-on-food-stamps/
+
+http://www.roughtype.com/?p=8138
+
 https://www.propublica.org/article/facebook-enabled-advertisers-to-reach-jew-haters#134578
 
 https://www.theatlantic.com/technology/archive/2017/09/you-are-already-living-inside-a-computer/539193/
