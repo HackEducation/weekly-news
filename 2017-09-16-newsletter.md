@@ -1,5 +1,11 @@
 ## HEWN, No. 231
 
+https://www.eater.com/2017/9/13/16302386/bodega-startup-corner-store-silicon-valley
+
+https://www.theatlantic.com/technology/archive/2017/09/the-great-thing-about-apple-christening-their-stores-town-squares/539667/
+
+https://twitter.com/FastCompany/status/907952827858911232
+
 https://thebaffler.com/outbursts/future-fail-silverman
 
 https://tressiemc.com/uncategorized/trump-the-intersectional-president/
