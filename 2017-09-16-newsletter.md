@@ -1,5 +1,9 @@
 ## HEWN, No. 231
 
+https://www.emptywheel.net/2017/09/14/software-is-a-long-con/
+
+http://hackeducation.com/2017/09/14/learning-objects
+
 https://www.eater.com/2017/9/13/16302386/bodega-startup-corner-store-silicon-valley
 
 https://www.theatlantic.com/technology/archive/2017/09/the-great-thing-about-apple-christening-their-stores-town-squares/539667/
