@@ -1,5 +1,11 @@
 ## HEWN, No. 231
 
+http://gizmodo.com/how-facebook-tricks-you-into-trusting-algorithms-1810792161
+
+https://www.buzzfeed.com/alexkantrowitz/google-allowed-advertisers-to-target-jewish-parasite-black?utm_term=.wckYGMb2#.tfaV1xP5 (plus ProPublica FB story)
+
+https://thebaffler.com/latest/mark-lillas-comfort-zone
+
 https://www.emptywheel.net/2017/09/14/software-is-a-long-con/
 
 http://hackeducation.com/2017/09/14/learning-objects
