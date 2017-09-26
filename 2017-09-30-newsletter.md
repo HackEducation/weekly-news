@@ -13,3 +13,7 @@ http://www.longviewoneducation.org/the-other-side-of-innovation/
 https://www.theatlantic.com/amp/article/540888/
 
 https://lareviewofbooks.org/article/star-trek-discovery/#
+
+https://www.buzzfeed.com/josephbernstein/steve-bannon-sought-to-infiltrate-facebook-hiring
+
+https://theundefeated.com/features/ibram-kendi-leading-scholar-of-racism-says-education-and-love-are-not-the-answer/
