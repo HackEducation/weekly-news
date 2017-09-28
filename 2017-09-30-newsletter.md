@@ -19,3 +19,7 @@ https://lareviewofbooks.org/article/star-trek-discovery/#
 https://www.buzzfeed.com/josephbernstein/steve-bannon-sought-to-infiltrate-facebook-hiring
 
 https://theundefeated.com/features/ibram-kendi-leading-scholar-of-racism-says-education-and-love-are-not-the-answer/
+
+https://thebaffler.com/latest/zucktown-usa-tveten
+
+https://www.theatlantic.com/technology/archive/2017/09/saving-the-world-from-code/540393/
