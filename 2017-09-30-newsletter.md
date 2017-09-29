@@ -2,6 +2,8 @@
 
 https://www.theatlantic.com/technology/archive/2017/09/the-false-dream-of-a-neutral-facebook/541404/
 
+https://www.nytimes.com/2017/09/23/technology/silicon-valley-men-backlash-gender-scandals.html
+
 https://www.theguardian.com/technology/2017/sep/26/tinder-personal-data-dating-app-messages-hacked-sold
 
 https://www.buzzfeed.com/josephbernstein/steve-bannon-sought-to-infiltrate-facebook-hiring?utm_term=.ta3EKk91#.peRaqjk8
