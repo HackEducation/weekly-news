@@ -1,5 +1,9 @@
 ## HEWN, No. 233
 
+https://www.theatlantic.com/technology/archive/2017/09/the-false-dream-of-a-neutral-facebook/541404/
+
+https://www.nytimes.com/2017/09/28/fashion/hugh-hefner-pajamas.html
+
 https://www.nytimes.com/2017/09/25/opinion/trump-electoral-college-minority.html
 
 https://www.newyorker.com/books/page-turner/james-baldwins-lesson-for-teachers-in-a-time-of-turmoil
