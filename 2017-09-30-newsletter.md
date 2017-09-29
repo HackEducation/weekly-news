@@ -2,6 +2,8 @@
 
 https://www.theatlantic.com/technology/archive/2017/09/the-false-dream-of-a-neutral-facebook/541404/
 
+https://www.theguardian.com/technology/2017/sep/26/tinder-personal-data-dating-app-messages-hacked-sold
+
 https://www.nytimes.com/2017/09/28/fashion/hugh-hefner-pajamas.html
 
 https://www.nytimes.com/2017/09/25/opinion/trump-electoral-college-minority.html
