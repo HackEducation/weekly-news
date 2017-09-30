@@ -1,5 +1,11 @@
 ## HEWN, No. 233
 
+http://www.slate.com/articles/technology/future_tense/2017/09/the_futurist_industry_is_overwhelmingly_white_and_male.html
+
+https://www.theverge.com/2017/9/29/16385026/elon-musk-spacex-rocket-transportation-point-to-point
+
+https://www.nytimes.com/2017/09/29/opinion/mark-zuckerberg-facebook.html
+
 https://www.theatlantic.com/technology/archive/2017/09/the-false-dream-of-a-neutral-facebook/541404/
 
 https://www.nytimes.com/2017/09/23/technology/silicon-valley-men-backlash-gender-scandals.html
