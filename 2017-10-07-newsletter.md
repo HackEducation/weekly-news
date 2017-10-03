@@ -10,4 +10,8 @@ https://www.theatlantic.com/technology/archive/2017/10/google-and-facebook-have-
 
 http://www.chronicle.com/article/The-Education-of-Ta-Nehisi/241356
 
+https://www.fastcompany.com/40475749/facebooks-safety-check-page-for-the-las-vegas-shooting-promotes-alt-right-news
+
+https://thebaffler.com/blessed-and-brightest/getting-schooled
+
 https://theageofausterity.wordpress.com/2017/10/01/the-gospel-according-to-the-job-creators/
