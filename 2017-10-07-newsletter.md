@@ -14,4 +14,6 @@ https://www.fastcompany.com/40475749/facebooks-safety-check-page-for-the-las-veg
 
 https://thebaffler.com/blessed-and-brightest/getting-schooled
 
+https://www.theguardian.com/commentisfree/2017/oct/02/mark-zuckerberg-repent-facebooks-sins
+
 https://theageofausterity.wordpress.com/2017/10/01/the-gospel-according-to-the-job-creators/
