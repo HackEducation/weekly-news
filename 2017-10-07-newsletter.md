@@ -2,6 +2,10 @@
 
 https://nplusonemag.com/online-only/online-only/thoughts-and-prayers/
 
+https://www.nytimes.com/2017/10/02/business/las-vegas-shooting-fake-news.html
+
+https://www.wired.com/story/mark-zuckerberg-who-will-take-responsibility-for-facebook-now/
+
 https://www.theatlantic.com/politics/archive/2017/10/colin-kaepernick/541845/
 
 https://www.newyorker.com/magazine/2017/10/09/how-the-elderly-lose-their-rights
