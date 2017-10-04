@@ -1,5 +1,11 @@
 ## HEWN, No. 234
 
+https://nplusonemag.com/online-only/online-only/thoughts-and-prayers/
+
+https://www.theatlantic.com/politics/archive/2017/10/colin-kaepernick/541845/
+
+https://www.newyorker.com/magazine/2017/10/09/how-the-elderly-lose-their-rights
+
 https://thefrailestthing.com/2017/10/01/idols-of-silicon-and-data/
 
 https://www.buzzfeed.com/charliewarzel/the-big-tech-platforms-are-still-botching-breaking-news
