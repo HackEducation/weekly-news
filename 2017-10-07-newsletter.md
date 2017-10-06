@@ -1,5 +1,15 @@
 ## HEWN, No. 234
 
+https://www.buzzfeed.com/josephbernstein/heres-how-breitbart-and-milo-smuggled-white-nationalism
+
+https://points.datasociety.net/your-data-is-being-manipulated-a7e31a83577b
+
+https://www.ft.com/content/f603e438-a4ba-11e7-9e4f-7f5e6a7c98a2
+
+https://nplusonemag.com/online-only/online-only/commercial-surveillance-state/
+
+https://www.tor.com/2017/10/03/this-future-looks-familiar-watching-blade-runner-in-2017/
+
 https://nplusonemag.com/online-only/online-only/thoughts-and-prayers/
 
 https://thefrailestthing.com/2017/10/04/machines-for-the-evasion-of-moral-responsibility/
