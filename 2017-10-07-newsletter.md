@@ -16,8 +16,7 @@ https://nplusonemag.com/online-only/online-only/thoughts-and-prayers/
 
 https://thefrailestthing.com/2017/10/04/machines-for-the-evasion-of-moral-responsibility/
 
-https://www.buzzfeed.com/annehelenpetersen/how-macklemore-laid-down-his-white-burden?utm_term=.ccY89V2l#.tmlNXGMZ
-
+https://www.washingtonpost.com/news/speaking-of-science/wp/2017/08/20/super-awesome-sylvia-vs-his-robots-and-your-assumptions/
 https://www.thenation.com/article/noam-chomsky-diagnoses-the-trump-era/
 
 https://www.nytimes.com/2017/10/02/business/las-vegas-shooting-fake-news.html
