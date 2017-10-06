@@ -2,6 +2,8 @@
 
 https://www.buzzfeed.com/josephbernstein/heres-how-breitbart-and-milo-smuggled-white-nationalism
 
+http://www.thestranger.com/news/2017/10/04/25451102/we-snuck-into-seattles-super-secret-white-nationalist-convention
+
 https://points.datasociety.net/your-data-is-being-manipulated-a7e31a83577b
 
 https://www.ft.com/content/f603e438-a4ba-11e7-9e4f-7f5e6a7c98a2
