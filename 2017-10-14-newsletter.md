@@ -23,3 +23,9 @@ https://jacobinmag.com/2017/10/racial-wealth-gap-united-states-bruenig
 https://twitter.com/justinhendrix/status/917835639353208832
 
 https://www.wsj.com/articles/how-smartphones-hijack-our-minds-1507307811
+
+https://twitter.com/verge/status/917530377891217415
+
+https://motherboard.vice.com/en_us/article/pakxby/silicon-valley-is-inserting-its-biases-into-nearly-every-technology-we-use
+
+http://hechingerreport.org/somebody-lied-education-alone-cant-dismantle-white-supremacy/
