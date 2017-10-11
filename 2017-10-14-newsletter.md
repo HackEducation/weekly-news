@@ -14,4 +14,12 @@ http://www.longviewoneducation.org/equitable-schools-for-a-sustainable-world/
 
 http://www.roughtype.com/?p=8199
 
+http://www.longviewoneducation.org/more-seymours-than-women-is-this-the-future-of-educational-change/
+
+https://www.teenvogue.com/story/how-the-school-to-prison-pipeline-works
+
+https://jacobinmag.com/2017/10/racial-wealth-gap-united-states-bruenig
+
+https://twitter.com/justinhendrix/status/917835639353208832
+
 https://www.wsj.com/articles/how-smartphones-hijack-our-minds-1507307811
