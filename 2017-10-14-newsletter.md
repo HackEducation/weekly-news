@@ -4,6 +4,8 @@ https://www.buzzfeed.com/charliewarzel/twitter-would-like-you-to-know-it-is-comm
 
 https://www.yalelawjournal.org/forum/real-talk-about-fake-news
 
+http://money.cnn.com/2017/10/12/media/dont-shoot-us-russia-pokemon-go/index.html
+
 https://nytimes.com/2017/10/12/arts/rose-mcgowan-twitter-weinstein.html
 
 https://www.theatlantic.com/technology/archive/2017/09/facebook-fact-checking-challenges/540192/
