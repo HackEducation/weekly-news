@@ -1,5 +1,11 @@
 ## HEWN, No. 235
 
+https://www.buzzfeed.com/charliewarzel/twitter-would-like-you-to-know-it-is-committed-to-being
+
+https://www.yalelawjournal.org/forum/real-talk-about-fake-news
+
+https://nytimes.com/2017/10/12/arts/rose-mcgowan-twitter-weinstein.html
+
 https://www.theatlantic.com/technology/archive/2017/09/facebook-fact-checking-challenges/540192/
 
 https://thebaffler.com/latest/the-moldbug-variations-pein
