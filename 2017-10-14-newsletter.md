@@ -1,5 +1,7 @@
 ## HEWN, No. 235
 
+https://orgtheory.wordpress.com/2017/10/11/nudging-the-economists-guest-post-by-juan-pablo-pardo-guerra/
+
 https://www.buzzfeed.com/charliewarzel/twitter-would-like-you-to-know-it-is-committed-to-being
 
 https://www.yalelawjournal.org/forum/real-talk-about-fake-news
