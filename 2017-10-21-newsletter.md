@@ -2,7 +2,9 @@
 
 https://www.fastcompany.com/3065928/sleepopolis-casper-bloggers-lawsuits-underside-of-the-mattress-wars
 
-https://www.buzzfeed.com/meghara/the-police-state-of-the-future-is-already-here?utm_term=.gjoPk8oz#.mgKyVl1m
+https://www.buzzfeed.com/meghara/the-police-state-of-the-future-is-already-here
+
+https://www.wired.com/story/the-problem-with-me-too-and-viral-outrage
 
 https://thefrailestthing.com/2017/10/15/democracy-and-technology/
 
@@ -15,3 +17,9 @@ https://www.wired.com/story/wikipedias-fate-shows-how-the-web-endangers-knowledg
 https://twitter.com/timmaughan/status/920325541424783360/photo/1
 
 https://thetrichordist.com/2017/10/03/a-single-picture-illustrates-how-google-turned-american-library-association-into-shilling-machine/
+
+https://beta.theglobeandmail.com/report-on-business/with-toronto-alphabet-looks-to-revolutionize-city-building/article36634779/
+
+https://gizmodo.com/what-dna-testing-companies-terrifying-privacy-policies-1819158337
+
+https://www.nytimes.com/2017/10/18/upshot/taxibots-sensors-and-self-driving-shuttles-a-glimpse-at-an-internet-city-in-toronto.html
