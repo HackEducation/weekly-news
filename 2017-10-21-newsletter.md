@@ -6,6 +6,8 @@ https://www.damemagazine.com/2017/10/19/twitter-and-white-supremacy-love-story
 
 https://www.theverge.com/2017/10/19/16503076/oracle-vs-google-judge-william-alsup-interview-waymo-uber
 
+https://www.insidehighered.com/blogs/just-visiting/telling-adjuncts-quit-giving-education
+
 https://www.fastcompany.com/3065928/sleepopolis-casper-bloggers-lawsuits-underside-of-the-mattress-wars
 
 https://www.buzzfeed.com/meghara/the-police-state-of-the-future-is-already-here
