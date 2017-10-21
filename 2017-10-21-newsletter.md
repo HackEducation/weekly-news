@@ -2,6 +2,10 @@
 
 https://www.buzzfeed.com/meghara/the-police-state-of-the-future-is-already-here
 
+https://www.buzzfeed.com/charliewarzel/how-people-inside-facebook-are-reacting-to-the-companys?utm_term=.xiw19mV5#.ao57BNd0
+
+http://www.npr.org/podcasts/510312/codeswitch
+
 https://www.damemagazine.com/2017/10/19/twitter-and-white-supremacy-love-story
 
 https://www.theverge.com/2017/10/19/16503076/oracle-vs-google-judge-william-alsup-interview-waymo-uber
