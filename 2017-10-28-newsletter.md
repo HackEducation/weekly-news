@@ -2,6 +2,22 @@
 
 https://www.buzzfeed.com/annehelenpetersen/wackadoodles-north-idaho
 
+https://www.citylab.com/equity/2017/10/amazon-should-build-hq2-in-my-apartment/543603/
+
+https://www.insidehighered.com/blogs/just-visiting/who-gets-be-expert-education
+
+https://theconversation.com/how-the-media-oversold-standing-desks-as-a-fix-for-inactivity-at-work-83808
+
+http://inthesetimes.com/article/20625/shackles-arent-bracelets-why-we-should-be-concerned-about-the-marketing-of
+
+http://www.slate.com/articles/technology/technology/2017/10/no_one_is_buying_snapchat_s_spectacles.html
+
+https://theoutline.com/post/2413/why-is-anyone-listening-to-tim-o-reilly
+
+https://www.theatlantic.com/technology/archive/2017/10/facebook-google-personalized-news/543357/
+
+https://dmlcentral.net/humanity-computer-science-curriculum/
+
 http://www.longviewoneducation.org/most-likely-to-repeat-history-2/
 
 https://jacobinmag.com/2017/10/scotland-corporal-punishment-britain-schools-action-union
