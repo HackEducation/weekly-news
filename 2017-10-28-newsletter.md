@@ -4,6 +4,8 @@ https://www.buzzfeed.com/annehelenpetersen/wackadoodles-north-idaho
 
 http://reallifemag.com/where-the-streets-have-no-numbers/
 
+https://www.theatlantic.com/technology/archive/2017/10/why-computers-should-be-hidden/543903/
+
 https://news.vice.com/story/mark-zuckerberg-political-spending
 
 https://www.citylab.com/equity/2017/10/amazon-should-build-hq2-in-my-apartment/543603/
