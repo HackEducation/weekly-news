@@ -1,5 +1,13 @@
 ## HEWN, No. 237
 
+https://www.nytimes.com/2017/10/26/technology/twitter-q3-earnings-trolls.html
+
+http://www.jessestommel.com/why-i-dont-grade/
+
+https://www.nytimes.com/2017/10/26/reader-center/choire-sicha-styles-editor-q-and-a.html
+
+https://kieranhealy.org/blog/archives/2017/10/26/media-lab/
+
 https://www.buzzfeed.com/annehelenpetersen/wackadoodles-north-idaho
 
 http://reallifemag.com/where-the-streets-have-no-numbers/
