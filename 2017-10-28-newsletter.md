@@ -4,6 +4,10 @@ https://www.nytimes.com/2017/10/26/technology/twitter-q3-earnings-trolls.html
 
 http://www.jessestommel.com/why-i-dont-grade/
 
+http://www.foodandwine.com/travel/restaurants/taco-chain-isnt-really-about-tacos
+
+https://www.theawl.com/2017/10/luddites-are-the-working-class-halloween-monsters-we-need/
+
 https://www.nytimes.com/2017/10/26/reader-center/choire-sicha-styles-editor-q-and-a.html
 
 https://kieranhealy.org/blog/archives/2017/10/26/media-lab/
