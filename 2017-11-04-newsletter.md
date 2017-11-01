@@ -11,3 +11,5 @@ https://news.vice.com/story/trump-campaign-had-help-from-8-silicon-valley-staffe
 https://theoutline.com/post/2435/wikitribune-is-already-biased
 
 https://er.educause.edu/~/media/files/articles/2017/10/erm17611.pdf
+
+http://hackeducation.com/2017/10/31/monsters4
