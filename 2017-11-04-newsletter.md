@@ -13,3 +13,11 @@ https://theoutline.com/post/2435/wikitribune-is-already-biased
 https://er.educause.edu/~/media/files/articles/2017/10/erm17611.pdf
 
 http://hackeducation.com/2017/10/31/monsters4
+
+https://thefrailestthing.com/2014/11/29/do-artifacts-have-ethics/
+
+https://www.thecut.com/2017/10/when-men-treat-assault-stories-like-ghost-stories.html
+
+https://www.nytimes.com/2017/11/01/technology/five-tech-giants-upside.html
+
+https://www.nytimes.com/2017/11/01/magazine/not-the-bots-we-were-looking-for.html
