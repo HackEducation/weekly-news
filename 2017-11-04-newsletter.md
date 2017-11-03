@@ -14,6 +14,8 @@ https://er.educause.edu/~/media/files/articles/2017/10/erm17611.pdf
 
 http://hackeducation.com/2017/10/31/monsters4
 
+https://reason.com/archives/2017/10/26/the-fragile-generation
+
 https://thefrailestthing.com/2014/11/29/do-artifacts-have-ethics/
 
 https://www.thecut.com/2017/10/when-men-treat-assault-stories-like-ghost-stories.html
