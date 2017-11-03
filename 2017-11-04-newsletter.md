@@ -21,3 +21,7 @@ https://www.thecut.com/2017/10/when-men-treat-assault-stories-like-ghost-stories
 https://www.nytimes.com/2017/11/01/technology/five-tech-giants-upside.html
 
 https://www.nytimes.com/2017/11/01/magazine/not-the-bots-we-were-looking-for.html
+
+https://spectrum.ieee.org/tech-history/cyberspace/the-improbable-origins-of-powerpoint
+
+https://www.wsj.com/articles/apple-limits-lengthy-testing-for-most-iphone-x-reviewers-1509466644
