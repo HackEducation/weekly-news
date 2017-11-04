@@ -1,5 +1,11 @@
 ## HEWN, No. 238
 
+https://www.nytimes.com/2017/11/03/technology/trump-twitter-deleted.html
+
+https://www.nytimes.com/2017/11/03/technology/silicon-valley-baltimore-schools.html
+
+http://www.eastbaytimes.com/2016/10/06/black-panther-school-ahead-of-its-time/
+
 https://thefrailestthing.com/2017/10/28/the-meaning-of-luddism/
 
 https://www.nytimes.com/2017/10/27/opinion/twitter-first-amendment.html
