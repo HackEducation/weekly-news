@@ -1,5 +1,13 @@
 ## HEWN, No. 239
 
+https://techcrunch.com/2017/11/07/facebook-revenge-porn-strategy-involes-sending-nudes-to-self/
+
+https://www.technologyreview.com/the-download/609354/tiny-human-brains-inside-rats-are-sparking-ethical-concern/
+
+https://gizmodo.com/how-facebook-figures-out-everyone-youve-ever-met-1819822691
+
+https://www.wsj.com/articles/mattress-company-shutters-web-publication-pivots-to-print-1510057802
+
 http://www.longviewoneducation.org/teach-like-theyre-data/
 
 https://staltz.com/the-web-began-dying-in-2014-heres-how.html
