@@ -1,5 +1,13 @@
 ## HEWN, No. 239
 
+https://www.thedailybeast.com/facebook-workers-not-an-algorithm-will-look-at-volunteered-nude-photos-first-to-stop-revenge-porn#1510179278413
+
+https://bostonreview.net/race-politics/elizabeth-catte-mythical-whiteness-trump-country
+
+http://nymag.com/selectall/2017/11/facebook-test-promoted-comments-calling-anything-fake-news.html
+
+https://www.buzzfeed.com/tariniparti/foster-friess-has-spent-millions-on-republicans-now-hes
+
 https://techcrunch.com/2017/11/07/facebook-revenge-porn-strategy-involes-sending-nudes-to-self/
 
 https://www.technologyreview.com/the-download/609354/tiny-human-brains-inside-rats-are-sparking-ethical-concern/
