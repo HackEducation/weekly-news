@@ -1,5 +1,9 @@
 ## HEWN, No. 239
 
+https://www.theatlantic.com/magazine/archive/2017/12/what-happens-if-china-makes-first-contact/544131/
+
+https://www.nytimes.com/2017/11/06/upshot/dont-nudge-me-the-limits-of-behavioral-economics-in-medicine.html
+
 https://www.thedailybeast.com/facebook-workers-not-an-algorithm-will-look-at-volunteered-nude-photos-first-to-stop-revenge-porn#1510179278413
 
 https://bostonreview.net/race-politics/elizabeth-catte-mythical-whiteness-trump-country
