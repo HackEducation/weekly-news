@@ -1,5 +1,15 @@
 ## HEWN, No. 239
 
+https://codeactsineducation.wordpress.com/2017/11/09/learning-machines/
+
+http://halfanhour.blogspot.com/2017/11/if-we-talked-about-internet-like-we.html
+
+https://www.nytimes.com/2017/11/09/technology/jason-kessler-twitter-verification.html
+
+https://thefrailestthing.com/2017/11/09/the-dystopia-is-already-here/
+
+https://www.propublica.org/article/cheap-tricks-the-low-cost-of-internet-harassment#136665
+
 https://www.theatlantic.com/magazine/archive/2017/12/what-happens-if-china-makes-first-contact/544131/
 
 https://www.nytimes.com/2017/11/06/upshot/dont-nudge-me-the-limits-of-behavioral-economics-in-medicine.html
