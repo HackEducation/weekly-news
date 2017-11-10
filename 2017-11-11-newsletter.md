@@ -1,8 +1,12 @@
 ## HEWN, No. 239
 
+https://www.buzzfeed.com/tariniparti/foster-friess-has-spent-millions-on-republicans-now-hes
+
 https://codeactsineducation.wordpress.com/2017/11/09/learning-machines/
 
 http://halfanhour.blogspot.com/2017/11/if-we-talked-about-internet-like-we.html
+
+https://opencontent.org/blog/archives/5219
 
 https://www.nytimes.com/2017/11/09/technology/jason-kessler-twitter-verification.html
 
