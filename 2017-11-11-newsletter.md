@@ -1,5 +1,11 @@
 ## HEWN, No. 239
 
+http://digitallearning.middcreate.net/tips/deleting-tweets-non-techie-starts-her-personal-information-environmentalism-journey-with-lots-of-help/
+
+https://theoutline.com/post/2464/facebook-s-idiotic-solution-to-revenge-porn
+
+https://www.newyorker.com/culture/cultural-comment/reacting-to-the-louis-ck-revelations/amp
+
 https://www.buzzfeed.com/tariniparti/foster-friess-has-spent-millions-on-republicans-now-hes
 
 https://codeactsineducation.wordpress.com/2017/11/09/learning-machines/
