@@ -1,5 +1,7 @@
 ## HEWN, No. 240
 
+https://www.theatlantic.com/magazine/archive/2017/12/the-making-of-an-american-nazi/544119/
+
 https://www.theatlantic.com/magazine/archive/2017/12/second-life-leslie-jamison/544149/
 
 https://dmlcentral.net/selling-social-emotional-learning/
