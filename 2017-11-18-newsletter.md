@@ -1,5 +1,11 @@
 ## HEWN, No. 240
 
+https://www.theguardian.com/technology/2017/nov/15/twitter-verified-blue-checkmarks-richard-spencer
+
+https://www.wired.com/story/anthony-levandowski-artificial-intelligence-religion/
+
+http://www.rollingstone.com/culture/features/elon-musk-inventors-plans-for-outer-space-cars-finding-love-w511747
+
 https://www.theatlantic.com/magazine/archive/2017/12/the-making-of-an-american-nazi/544119/
 
 https://www.theatlantic.com/magazine/archive/2017/12/second-life-leslie-jamison/544149/
