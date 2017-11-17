@@ -1,5 +1,7 @@
 ## HEWN, No. 240
 
+http://www.rollingstone.com/politics/news/pizzagate-anatomy-of-a-fake-news-scandal-w511904
+
 https://www.theguardian.com/technology/2017/nov/15/twitter-verified-blue-checkmarks-richard-spencer
 
 https://www.wired.com/story/anthony-levandowski-artificial-intelligence-religion/
