@@ -2,6 +2,8 @@
 
 https://literaryreview.co.uk/caught-in-the-web-2
 
+https://www.ft.com/content/c5fe0be8-ca48-11e7-ab18-7a9fb7d6163e
+
 http://www.rollingstone.com/politics/news/pizzagate-anatomy-of-a-fake-news-scandal-w511904
 
 https://www.theguardian.com/technology/2017/nov/15/twitter-verified-blue-checkmarks-richard-spencer
