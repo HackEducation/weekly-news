@@ -1,5 +1,7 @@
 ## HEWN, No. 241
 
+https://theoutline.com/post/2503/political-correctness-isn-t-the-problem
+
 https://www.wsj.com/articles/chess-novice-challenged-magnus-carlsen-1510866214
 
 https://thefrailestthing.com/2017/11/18/the-ethics-of-technological-mediation/
@@ -13,4 +15,3 @@ https://www.theatlantic.com/technology/archive/2017/11/the-mark-zuckerberg-theor
 https://points.datasociety.net/the-radicalization-of-utopian-dreams-e1b785a0cb5d
 
 http://nymag.com/daily/intelligencer/2017/11/there-have-been-so-many-bad-lefty-free-speech-takes-lately.html
-
