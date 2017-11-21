@@ -19,3 +19,5 @@ http://nymag.com/daily/intelligencer/2017/11/there-have-been-so-many-bad-lefty-f
 https://dmlcentral.net/wearable-real-time-brainwave-training-classroom/
 
 https://www.theguardian.com/technology/2017/nov/19/trump-russia-fake-news-libertarians-autocrats-democracy
+
+http://theweek.com/articles/737056/myth-male-bumbler
