@@ -15,3 +15,7 @@ https://www.theatlantic.com/technology/archive/2017/11/the-mark-zuckerberg-theor
 https://points.datasociety.net/the-radicalization-of-utopian-dreams-e1b785a0cb5d
 
 http://nymag.com/daily/intelligencer/2017/11/there-have-been-so-many-bad-lefty-free-speech-takes-lately.html
+
+https://dmlcentral.net/wearable-real-time-brainwave-training-classroom/
+
+https://www.theguardian.com/technology/2017/nov/19/trump-russia-fake-news-libertarians-autocrats-democracy
