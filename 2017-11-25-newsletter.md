@@ -1,5 +1,9 @@
 ## HEWN, No. 241
 
+https://www.theatlantic.com/politics/archive/2017/11/the-nationalists-delusion/546356/
+
+https://www.nytimes.com/2017/11/18/style/anne-wojcicki-23andme-genetics.html
+
 https://theoutline.com/post/2503/political-correctness-isn-t-the-problem
 
 https://www.wsj.com/articles/chess-novice-challenged-magnus-carlsen-1510866214
