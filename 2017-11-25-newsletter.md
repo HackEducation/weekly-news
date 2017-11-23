@@ -1,5 +1,15 @@
 ## HEWN, No. 241
 
+https://www.buzzfeed.com/ryanmac/peter-thiel-may-want-to-buy-gawker-dot-com
+
+https://theoutline.com/post/2515/apple-has-very-few-stores-in-communities-of-color
+
+https://www.buzzfeed.com/charliewarzel/youtube-is-addressing-its-massive-child-exploitation-problem
+
+https://www.theatlantic.com/technology/archive/2017/11/network-neutrality-cant-fix-the-internet/546620/
+
+http://uk.businessinsider.com/uber-for-busses-startup-launches-ico-to-end-tipping-altogether-2017-11
+
 https://www.theatlantic.com/politics/archive/2017/11/the-nationalists-delusion/546356/
 
 https://www.nytimes.com/2017/11/18/style/anne-wojcicki-23andme-genetics.html
