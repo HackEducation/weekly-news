@@ -1,5 +1,7 @@
 ## HEWN, No. 241
 
+http://www.audubon.org/news/the-story-behind-foul-mouthed-effin-birds-twitter-account
+
 https://www.buzzfeed.com/ryanmac/peter-thiel-may-want-to-buy-gawker-dot-com
 
 https://theoutline.com/post/2515/apple-has-very-few-stores-in-communities-of-color
