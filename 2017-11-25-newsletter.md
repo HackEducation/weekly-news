@@ -1,5 +1,9 @@
 ## HEWN, No. 241
 
+https://thefrailestthing.com/2017/11/24/jacques-ellul-on-adaptation-of-human-beings-to-the-technical-milieu/
+
+https://www.theguardian.com/commentisfree/2017/nov/23/the-guardian-view-on-cryptocurrencies-blockchain-of-fools
+
 http://www.audubon.org/news/the-story-behind-foul-mouthed-effin-birds-twitter-account
 
 https://www.buzzfeed.com/ryanmac/peter-thiel-may-want-to-buy-gawker-dot-com
