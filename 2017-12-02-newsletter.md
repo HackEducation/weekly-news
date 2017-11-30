@@ -1,5 +1,7 @@
 ## HEWN, No. 242
 
+http://www.latimes.com/local/lanow/la-me-ln-rupert-tarsey-20171129-htmlstory.html
+
 https://stanfordpolitics.org/2017/11/27/peter-thiel-cover-story/
 
 https://thebaffler.com/blessed-and-brightest/pets-or-livestock
