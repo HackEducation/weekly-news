@@ -14,4 +14,6 @@ https://www.buzzfeed.com/charliewarzel/the-new-york-times-cant-figure-out-where-
 
 https://lareviewofbooks.org/article/wont-get-fooled-again-malcolm-harriss-kids-these-days-human-capital-and-the-making-of-millennials/
 
-https://www.buzzfeed.com/craigsilverman/social-platforms-promised-a-level-playing-field-for-all-the?utm_term=.cyrKr59l#.hiqR1pM0
+https://www.buzzfeed.com/craigsilverman/social-platforms-promised-a-level-playing-field-for-all-the
+
+https://thefrailestthing.com/2017/11/29/recovering-the-text-critical-canon/
