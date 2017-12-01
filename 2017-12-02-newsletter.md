@@ -1,5 +1,7 @@
 ## HEWN, No. 242
 
+https://lareviewofbooks.org/article/wont-get-fooled-again-malcolm-harriss-kids-these-days-human-capital-and-the-making-of-millennials/
+
 http://www.latimes.com/local/lanow/la-me-ln-rupert-tarsey-20171129-htmlstory.html
 
 https://stanfordpolitics.org/2017/11/27/peter-thiel-cover-story/
