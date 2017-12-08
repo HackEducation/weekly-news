@@ -2,6 +2,10 @@
 
 https://www.bloomberg.com/news/features/2017-12-07/how-rodrigo-duterte-turned-facebook-into-a-weapon-with-a-little-help-from-facebook
 
+https://medium.com/@sts_news/design-thinking-is-kind-of-like-syphilis-its-contagious-and-rots-your-brains-842ed078af29
+
+https://www.theatlantic.com/technology/archive/2017/12/it-might-be-impossible-for-future-historians-to-understand-our-internet/547463/
+
 https://thefrailestthing.com/2017/12/07/facebook-doesnt-care-about-your-children/
 
 https://thenewinquiry.com/blog/ordinary-boredom/
