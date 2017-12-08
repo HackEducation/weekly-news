@@ -25,3 +25,9 @@ https://www.newyorker.com/magazine/2017/12/11/success-academys-radical-education
 https://thefrailestthing.com/2017/12/03/the-rhetorical-we-and-the-ethics-of-technology/
 
 https://www.nytimes.com/2017/12/05/magazine/the-return-of-the-techno-moral-panic.html?_r=0
+
+https://www.newyorker.com/magazine/2017/12/11/success-academys-radical-educational-experiment 
+
+https://www.theatlantic.com/magazine/archive/2018/01/success-academy-charter-schools-eva-moskowitz/546554/
+
+https://chalkbeat.org/posts/us/2017/12/06/why-my-eva-moskowitz-story-is-the-scariest-one-ive-ever-written/
