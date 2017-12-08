@@ -1,5 +1,13 @@
 ## HEWN, No. 243
 
+https://www.bloomberg.com/news/features/2017-12-07/how-rodrigo-duterte-turned-facebook-into-a-weapon-with-a-little-help-from-facebook
+
+https://thefrailestthing.com/2017/12/07/facebook-doesnt-care-about-your-children/
+
+https://thenewinquiry.com/blog/ordinary-boredom/
+
+https://www.bloomberg.com/news/articles/2017-12-07/silicon-valley-is-sneaking-models-into-this-year-s-holiday-parties
+
 https://www.theatlantic.com/technology/archive/2017/12/how-the-index-card-catalogued-the-world/547271/
 
 http://firstmonday.org/ojs/index.php/fm/article/view/8097/6583
