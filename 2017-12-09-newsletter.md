@@ -1,5 +1,7 @@
 ## HEWN, No. 243
 
+https://academeblog.org/2017/12/07/free-expression-or-harassment/
+
 https://www.bloomberg.com/news/features/2017-12-07/how-rodrigo-duterte-turned-facebook-into-a-weapon-with-a-little-help-from-facebook
 
 https://www.reuters.com/investigates/special-report/usa-taser-tracker/
