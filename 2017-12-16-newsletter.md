@@ -7,3 +7,6 @@ https://www.bustle.com/p/why-i-believe-to-siri-with-love-by-judith-newman-is-a-b
 https://bryanalexander.org/2017/12/11/one-datapoint-on-widening-income-inequality-in-education-dollar-store-is-rocking/
 
 https://twitter.com/i/web/status/940274196214673409
+
+https://www.buzzfeed.com/josephbernstein/inside-steve-bannons-war-against-twitter
+
