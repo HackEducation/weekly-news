@@ -17,3 +17,5 @@ https://www.newyorker.com/culture/annals-of-gastronomy/mario-batali-and-the-appe
 https://tressiemc.com/uncategorized/trust-black-women/
 
 https://www.huffingtonpost.com/entry/daily-stormer-nazi-style-guide_us_5a2ece19e4b0ce3b344492f2?m3a
+
+https://www.wired.com/story/mirai-botnet-minecraft-scam-brought-down-the-internet/
