@@ -10,3 +10,10 @@ https://twitter.com/i/web/status/940274196214673409
 
 https://www.buzzfeed.com/josephbernstein/inside-steve-bannons-war-against-twitter
 
+https://www.vogue.com/article/philip-seymour-hoffman-mimi-odonnell-vogue-january-2018-issue
+
+https://www.newyorker.com/culture/annals-of-gastronomy/mario-batali-and-the-appetites-of-men
+
+https://tressiemc.com/uncategorized/trust-black-women/
+
+https://www.huffingtonpost.com/entry/daily-stormer-nazi-style-guide_us_5a2ece19e4b0ce3b344492f2?m3a
