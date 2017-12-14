@@ -4,6 +4,10 @@ http://musicfordeckchairs.com/blog/2017/12/11/subject-outline/
 
 https://www.bustle.com/p/why-i-believe-to-siri-with-love-by-judith-newman-is-a-book-that-does-incredible-damage-to-the-autistic-community-6780420
 
+https://hazlitt.net/feature/year-falling-apart
+
+https://www.citylab.com/life/2017/12/revisiting-an-anti-urban-childrens-story-everyone-loves/547922/
+
 https://bryanalexander.org/2017/12/11/one-datapoint-on-widening-income-inequality-in-education-dollar-store-is-rocking/
 
 https://twitter.com/i/web/status/940274196214673409
