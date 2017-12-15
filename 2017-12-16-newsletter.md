@@ -2,6 +2,10 @@
 
 http://musicfordeckchairs.com/blog/2017/12/11/subject-outline/
 
+https://electricliterature.com/amp/p/4c6891f548cf
+
+https://www.theatlantic.com/education/archive/2017/12/progressives-are-undermining-public-schools/548084/
+
 https://www.bustle.com/p/why-i-believe-to-siri-with-love-by-judith-newman-is-a-book-that-does-incredible-damage-to-the-autistic-community-6780420
 
 https://hazlitt.net/feature/year-falling-apart
