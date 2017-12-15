@@ -1,5 +1,7 @@
 ## HEWN, No. 244
 
+http://www.niemanlab.org/2017/12/refactoring-media-literacy-for-the-networked-age/
+
 http://musicfordeckchairs.com/blog/2017/12/11/subject-outline/
 
 https://electricliterature.com/amp/p/4c6891f548cf
