@@ -4,6 +4,12 @@ http://www.niemanlab.org/2017/12/refactoring-media-literacy-for-the-networked-ag
 
 http://musicfordeckchairs.com/blog/2017/12/11/subject-outline/
 
+https://www.wired.com/story/fake-news-social-media-danah-boyd/
+
+https://codeactsineducation.wordpress.com/2017/12/15/nudge-unit-data-science-experimental-education/
+
+https://www.wired.com/story/elon-musk-awkward-dislike-mass-transit/
+
 https://electricliterature.com/amp/p/4c6891f548cf
 
 https://www.theatlantic.com/education/archive/2017/12/progressives-are-undermining-public-schools/548084/
