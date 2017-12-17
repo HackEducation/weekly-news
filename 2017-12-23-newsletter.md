@@ -6,4 +6,4 @@ https://www.theatlantic.com/technology/archive/2017/12/net-neutrality-was-never-
 
 https://www.nytimes.com/2017/12/16/us/politics/pentagon-program-ufo-harry-reid.html
 
-
+https://www.wired.com/story/age-of-social-credit/
