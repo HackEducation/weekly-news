@@ -11,3 +11,5 @@ https://www.wired.com/story/age-of-social-credit/
 https://www.wired.com/story/the-other-tech-bubble/
 
 https://t.co/f1tQ4gUX2M (link to B. Doxtdator's piece on personalized learning and me as Chomsky)
+
+https://motherboard.vice.com/en_us/article/xwvgeq/an-incomplete-timeline-of-what-we-tried
