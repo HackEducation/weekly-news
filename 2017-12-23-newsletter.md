@@ -2,6 +2,12 @@
 
 http://www.longviewoneducation.org/propaganda-behind-personalised-learning/
 
+https://harpers.org/archive/2018/01/the-digital-poorhouse/
+
+https://www.buzzfeed.com/annehelenpetersen/scandal-95-years-in-the-making
+
+https://www.technologyreview.com/s/609821/magic-leap-says-it-will-release-its-ar-headset-next-year/
+
 https://www.theatlantic.com/technology/archive/2017/12/net-neutrality-was-never-enough/548549/
 
 https://www.nytimes.com/2017/12/16/us/politics/pentagon-program-ufo-harry-reid.html
@@ -19,5 +25,3 @@ http://edutechnicalities.com/film/fungal_fruiting_bodies/
 https://www.wsj.com/articles/twelve-days-in-xinjiang-how-chinas-surveillance-state-overwhelms-daily-life-1513700355 (and what Sam Altman said)
 
 http://www.slate.com/blogs/screen_time/2017/12/19/the_rise_and_fall_of_baby_einstein.html?wpsrc=sh_all_dt_tw_ru
-
-
