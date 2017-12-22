@@ -1,5 +1,9 @@
 ## HEWN, No. 245
 
+https://www.theverge.com/2017/12/21/16807116/infosec-community-sexual-predators-weinstein-assault
+
+https://www.theguardian.com/us-news/ng-interactive/2017/dec/20/bussed-out-america-moves-homeless-people-country-study
+
 http://www.longviewoneducation.org/propaganda-behind-personalised-learning/
 
 https://harpers.org/archive/2018/01/the-digital-poorhouse/
