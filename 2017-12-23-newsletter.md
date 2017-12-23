@@ -4,6 +4,18 @@ https://www.theverge.com/2017/12/21/16807116/infosec-community-sexual-predators-
 
 https://www.theguardian.com/us-news/ng-interactive/2017/dec/20/bussed-out-america-moves-homeless-people-country-study
 
+https://thebaffler.com/latest/never-get-off-the-boat-byrne
+
+http://nymag.com/daily/intelligencer/2017/12/who-is-reality-winner.html
+
+https://www.newyorker.com/magazine/2017/12/18/estonia-the-digital-republic
+
+http://www.history.com/news/the-father-of-modern-libraries-was-a-serial-sexual-harasser
+
+https://www.lrb.co.uk/v40/n01/jackson-lears/what-we-dont-talk-about-when-we-talk-about-russian-hacking
+
+https://www.theverge.com/2017/12/21/16807116/infosec-community-sexual-predators-weinstein-assault
+
 http://www.longviewoneducation.org/propaganda-behind-personalised-learning/
 
 https://harpers.org/archive/2018/01/the-digital-poorhouse/
