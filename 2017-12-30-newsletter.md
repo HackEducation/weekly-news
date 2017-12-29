@@ -7,3 +7,5 @@ http://bostonreview.net/race/robin-d-g-kelley-coates-and-west-jackson
 http://www.longviewoneducation.org/trouble-silicon-valley-synecdoche/
 
 http://www.longviewoneducation.org/global-positionings-precarity-extraction/
+
+https://www.propublica.org/article/facebook-enforcement-hate-speech-rules-mistakes#138910
