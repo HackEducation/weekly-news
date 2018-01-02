@@ -1,6 +1,5 @@
 ## HEWN, No. 247
 
-update
 http://pressthink.org/2017/12/show-work-new-terms-trust-journalism/
 
 https://www.nytimes.com/2017/12/29/world/canada/google-toronto-city-future.html
