@@ -12,6 +12,10 @@ https://hapgood.us/2018/01/03/people-are-not-freaking-out-over-machine-learning-
 
 http://www.bigecho.org/dont-be-evil
 
+https://www.theguardian.com/technology/2018/jan/01/elon-musk-neurotechnology-human-enhancement-brain-computer-interfaces
+
+https://www.wsj.com/articles/peter-thiels-founders-fund-makes-big-bet-on-bitcoin-1514917433
+
 https://thefrailestthing.com/2018/01/03/superfluous-people-the-ideology-of-silicon-valley-and-the-origins-of-totalitarianism/
 
 http://pressthink.org/2017/12/show-work-new-terms-trust-journalism/
