@@ -1,5 +1,11 @@
 ## HEWN, No. 247
 
+https://www.buzzfeed.com/annehelenpetersen/go-west-white-man?utm_term=.araZMelm#.nt4Z2JyK
+
+https://motherboard.vice.com/en_us/article/bjy7ez/social-media-threatens-global-democracy
+
+https://www.buzzfeed.com/daveyalba/youtubes-logan-paul-debacle-highlights-its-content
+
 https://logicmag.io/03-dont-be-evil/
 
 https://motherboard.vice.com/en_us/article/vby7ny/bitcoin-body-heat-mining
