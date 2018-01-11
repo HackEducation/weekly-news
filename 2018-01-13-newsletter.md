@@ -1,5 +1,13 @@
 ## HEWN, No. 248
 
+https://thefrailestthing.com/2012/01/12/hole-in-our-hearts/
+
+https://www.thecut.com/2018/01/moira-donegan-i-started-the-media-men-list.html
+
+https://techcrunch.com/2018/01/10/the-day-the-lights-went-out-at-ces/
+
+https://twitter.com/i/web/status/951203972274163712
+
 https://washingtonmonthly.com/magazine/january-february-march-2018/how-to-fix-facebook-before-it-fixes-us/
 
 http://locusmag.com/2018/01/cory-doctorow-persuasion-adaptation-and-the-arms-race-for-your-attention/
