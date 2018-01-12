@@ -4,6 +4,10 @@ https://www.nytimes.com/2018/01/11/technology/facebook-news-feed.html?partner=rs
 
 http://publicdomainreview.org/2016/11/10/let-us-calculate-leibniz-llull-and-computational-imagination/
 
+https://www.bloomberg.com/news/articles/2018-01-11/uber-s-secret-tool-for-keeping-the-cops-in-the-dark
+
+https://www.washingtonpost.com/news/made-by-history/wp/2018/01/11/the-raw-water-craze-threatens-to-undo-one-of-our-major-public-health-achievements/
+
 https://kottke.org/18/01/remembering-1968
 
 https://www.reuters.com/article/us-gawker-thiel/peter-thiel-submits-bid-for-gawker-faces-challenges-idUSKBN1F02V2
