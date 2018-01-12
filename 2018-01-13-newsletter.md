@@ -1,5 +1,15 @@
 ## HEWN, No. 248
 
+https://www.nytimes.com/2018/01/11/technology/facebook-news-feed.html?partner=rss&emc=rss
+
+http://publicdomainreview.org/2016/11/10/let-us-calculate-leibniz-llull-and-computational-imagination/
+
+https://kottke.org/18/01/remembering-1968
+
+https://www.reuters.com/article/us-gawker-thiel/peter-thiel-submits-bid-for-gawker-faces-challenges-idUSKBN1F02V2
+
+https://gizmodo.com/google-censors-gorillas-rather-then-risk-them-being-mis-1821994460
+
 https://thefrailestthing.com/2012/01/12/hole-in-our-hearts/
 
 https://www.thecut.com/2018/01/moira-donegan-i-started-the-media-men-list.html
