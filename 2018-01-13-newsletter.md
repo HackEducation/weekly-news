@@ -1,6 +1,10 @@
 ## HEWN, No. 248
 
-https://www.nytimes.com/2018/01/11/technology/facebook-news-feed.html?partner=rss&emc=rss
+https://www.nytimes.com/2018/01/12/magazine/inside-one-of-americas-last-pencil-factories.html
+
+https://theoutline.com/post/2919/how-google-may-be-jeopardizing-african-american-literature-websites?zd=1
+
+https://www.nytimes.com/2018/01/11/technology/facebook-news-feed.html
 
 http://publicdomainreview.org/2016/11/10/let-us-calculate-leibniz-llull-and-computational-imagination/
 
