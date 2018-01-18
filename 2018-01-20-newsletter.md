@@ -1,5 +1,17 @@
 ## HEWN, No. 249
 
+https://www.huffingtonpost.com/entry/opinion-cottom-wicked-problems_us_5a54c562e4b003133ecc52d6
+
+https://www.theatlantic.com/technology/archive/2018/01/equivant-compas-algorithm/550646/
+
+http://nymag.com/selectall/2018/01/the-awls-best-stories-picked-by-writers.html
+
+http://theweek.com/articles/748170/why-big-tech-thinks-voice-control-conquer-world
+
+http://www.chicagotribune.com/business/ct-biz-google-art-selfies-20180116-story.html
+
+Me on "is tech addictive"
+
 https://www.theawl.com/2018/01/awl-ends/
 
 https://www.newyorker.com/magazine/2018/01/22/when-barbie-went-to-war-with-bratz
