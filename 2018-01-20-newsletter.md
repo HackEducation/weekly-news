@@ -18,6 +18,8 @@ http://www.chicagotribune.com/business/ct-biz-google-art-selfies-20180116-story.
 
 Me on "is tech addictive"
 
+https://bryanmmathers.com/is-technology-addictive/
+
 https://www.theawl.com/2018/01/awl-ends/
 
 https://www.newyorker.com/magazine/2018/01/22/when-barbie-went-to-war-with-bratz
