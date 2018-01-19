@@ -1,5 +1,11 @@
 ## HEWN, No. 249
 
+https://scholarlykitchen.sspnet.org/2018/01/19/algorithms-opinions-embedded-code/
+
+https://www.bloomberg.com/view/articles/2018-01-18/personality-tests-are-failing-american-workers
+
+https://www.wired.com/story/free-speech-issue-tech-turmoil-new-censorship/
+
 https://www.huffingtonpost.com/entry/opinion-cottom-wicked-problems_us_5a54c562e4b003133ecc52d6
 
 https://www.theatlantic.com/technology/archive/2018/01/equivant-compas-algorithm/550646/
