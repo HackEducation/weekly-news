@@ -1,5 +1,9 @@
 ## HEWN, No. 250
 
+https://www.theverge.com/2018/1/22/16918662/ready-player-one-steven-spielberg-ernest-cline-featurette-watch
+
+https://www.washingtonpost.com/business/economy/inside-facebooks-year-of-reckoning/2018/01/22/cfd7307c-f4c3-11e7-beb6-c8d48830c54d_story.html
+
 https://www.theverge.com/2018/1/22/16918456/facebook-democracy-civil-society-fake-news-hard-questions
 
 https://futurism.com/videos/3d-printing-revolutionizing-access-objects-desire/
