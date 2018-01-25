@@ -1,5 +1,13 @@
 ## HEWN, No. 250
 
+https://slate.com/technology/2018/01/ursula-k-le-guin-taught-us-how-to-think-about-the-future.html
+
+https://www.vanityfair.com/news/2018/01/mark-zuckerberg-facebook-downward-spiral
+
+https://www.theatlantic.com/technology/archive/2018/01/sorry-alexa-is-not-a-feminist/551291/
+
+https://medium.com/@zephoria/panicked-about-kids-addiction-to-tech-88b2c856bf1c
+
 https://www.theatlantic.com/entertainment/archive/2018/01/the-technological-shift-behind-the-worlds-first-novel/551228/
 
 https://www.nytimes.com/2018/01/23/obituaries/ursula-k-le-guin-acclaimed-for-her-fantasy-fiction-is-dead-at-88.html
