@@ -1,5 +1,13 @@
 ## HEWN, No. 250
 
+https://www.theatlantic.com/technology/archive/2018/01/that-time-the-government-commission-fiction-about-nuclear-war/551303/
+
+http://theweek.com/articles/749978/female-price-male-pleasure
+
+https://www.theverge.com/tldr/2018/1/25/16933812/elon-musk-boring-company-flamethrower-price
+
+https://www.theverge.com/2018/1/25/16933802/tesla-model-3-battery-gigafactory-production-delays
+
 https://slate.com/technology/2018/01/ursula-k-le-guin-taught-us-how-to-think-about-the-future.html
 
 https://www.vanityfair.com/news/2018/01/mark-zuckerberg-facebook-downward-spiral
