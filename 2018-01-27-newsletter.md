@@ -2,6 +2,8 @@
 
 https://www.theatlantic.com/technology/archive/2018/01/that-time-the-government-commission-fiction-about-nuclear-war/551303/
 
+https://thefrailestthing.com/2018/01/26/does-technology-evolve-more-quickly-than-ethical-and-legal-norms/
+
 http://theweek.com/articles/749978/female-price-male-pleasure
 
 https://www.theverge.com/tldr/2018/1/25/16933812/elon-musk-boring-company-flamethrower-price
