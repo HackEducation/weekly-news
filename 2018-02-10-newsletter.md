@@ -7,3 +7,5 @@ https://thenewinquiry.com/white-magic/
 https://www.bloomberg.com/news/articles/2018-02-05/tech-diets-catch-on-with-apple-executives-facebook-billionaires-and-googlers
 
 https://www.politico.com/magazine/story/2018/02/04/trump-twitter-russians-release-the-memo-216935
+
+https://twitter.com/i/web/status/961057016981671938
