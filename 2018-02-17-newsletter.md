@@ -13,3 +13,5 @@ https://kotaku.com/sex-pong-and-pioneers-what-atari-was-really-like-ac-182293005
 https://lareviewofbooks.org/article/ideologies-of-boring-things-the-internet-and-infrastructures-of-race/#!
 
 https://librarianshipwreck.wordpress.com/2018/02/13/be-wary-of-silicon-valleys-guilty-conscience-on-the-center-for-humane-technology/
+
+https://www.wired.com/story/scientists-know-how-youll-respond-to-nuclear-warand-they-have-a-plan
