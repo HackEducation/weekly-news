@@ -1,5 +1,7 @@
 ## HEWN, No. 253
 
+https://medium.com/s/story/the-singular-pursuit-of-comrade-bezos-3e280baa045c
+
 https://www.theatlantic.com/technology/archive/2018/02/stupid-cities/553052/
 
 https://www.wired.com/story/inside-facebook-mark-zuckerberg-2-years-of-hell/
