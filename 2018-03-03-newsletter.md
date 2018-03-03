@@ -12,4 +12,8 @@ https://longreads.com/2018/03/01/how-to-write-a-memoir-while-grieving/
 
 https://slate.com/news-and-politics/2018/02/the-student-activists-of-marjory-stoneman-douglas-high-demonstrate-the-power-of-a-full-education.html
 
+http://ericposner.com/a-planetary-scale-hate-machine/
+
+http://www.plannedobsolescence.net/community-review/
+
 
