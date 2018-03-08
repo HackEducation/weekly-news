@@ -4,6 +4,8 @@ https://www.washingtonpost.com/news/business/wp/2018/03/02/feature/the-silicon-v
 
 David Hogg article in The Outline
 
+http://www.longviewoneducation.org/diversity-thought-not-problem/
+
 https://www.wired.com/story/social-inequality-will-not-be-solved-by-an-app/
 
 http://reallifemag.com/care-package/
