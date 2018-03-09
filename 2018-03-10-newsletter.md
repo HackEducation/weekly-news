@@ -2,7 +2,7 @@
 
 https://www.washingtonpost.com/news/business/wp/2018/03/02/feature/the-silicon-valley-elites-latest-status-symbol-chickens/
 
-David Hogg article in The Outline
+https://theoutline.com/post/3571/david-hogg-parkland-interview?zd=1&zi=vjjybh52 (There's also the piece in the NYT that dispells the "digital native" myth)
 
 http://www.longviewoneducation.org/diversity-thought-not-problem/
 
