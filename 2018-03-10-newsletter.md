@@ -19,3 +19,7 @@ https://www.thestar.com/news/gta/2018/03/02/the-risks-of-becoming-a-google-city.
 http://iasc-culture.org/THR/THR_article_2018_Spring_Jacobs.php
 
 https://twitter.com/i/web/status/971578757600501760
+
+https://theoutline.com/post/3634/mr-rogers-wont-you-be-my-neighbor
+
+(Testimony -- video games. Dee Snider episode (Thank Mike for the story)
