@@ -1,5 +1,13 @@
 ## HEWN, No. 256
 
+https://www.theatlantic.com/technology/archive/2018/03/why-its-okay-to-say-fake-news/555215/
+
+https://nplusonemag.com/online-only/online-only/the-blaze/
+
+https://www.newyorker.com/books/page-turner/rereading-a-wrinkle-in-time-after-a-childhood-enthralled-by-madeleine-lengle
+
+http://www.longviewoneducation.org/no-cognitive-strengthening-exercises-arent-answer-media-literacy/
+
 https://www.washingtonpost.com/news/business/wp/2018/03/02/feature/the-silicon-valley-elites-latest-status-symbol-chickens/
 
 https://theoutline.com/post/3571/david-hogg-parkland-interview?zd=1&zi=vjjybh52 (There's also the piece in the NYT that dispells the "digital native" myth)
