@@ -1,5 +1,9 @@
 ## HEWN, No. 257
 
+https://www.wired.com/story/theranos-and-silicon-valleys-fake-it-till-you-make-it-culture
+
+https://www.theatlantic.com/technology/archive/2018/03/the-internet-is-bad/555536/
+
 https://www.theverge.com/2018/3/15/17121854/facebook-data-research-api-privacy-impact
 
 https://blog.mahabali.me/social-media/too-critical-not-critical-enough/
