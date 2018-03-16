@@ -1,5 +1,7 @@
 ## HEWN, No. 257
 
+https://splinternews.com/the-market-cant-solve-a-massacre-1823745509
+
 https://www.wired.com/story/theranos-and-silicon-valleys-fake-it-till-you-make-it-culture
 
 https://www.theatlantic.com/technology/archive/2018/03/the-internet-is-bad/555536/
