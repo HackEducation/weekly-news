@@ -1,5 +1,7 @@
 ## HEWN, No. 258
 
+https://www.bloomberg.com/news/articles/2018-03-21/paul-ford-facebook-is-why-we-need-a-digital-protection-agency
+
 https://www.newyorker.com/tech/elements/cambridge-analytica-and-our-lives-inside-the-surveillance-machine
 
 https://theoutline.com/post/3832/david-carroll-was-fighting-cambridge-analytica-before-it-was-cool
