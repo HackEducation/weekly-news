@@ -1,5 +1,15 @@
 ## HEWN, No. 258
 
+https://librarianshipwreck.wordpress.com/2018/03/22/facebook-to-delete-or-not-to-delete/
+
+https://www.theverge.com/2018/3/22/17151430/bankruptcy-mt-gox-liabilities-bitcoin
+
+https://www.theatlantic.com/technology/archive/2018/03/my-cow-game-extracted-your-facebook-data/556214/
+
+https://www.nytimes.com/2018/03/19/opinion/facebook-cambridge-analytica.html
+
+https://www.theatlantic.com/international/archive/2018/03/vatican-hackathon/555365/
+
 https://www.bloomberg.com/news/articles/2018-03-21/paul-ford-facebook-is-why-we-need-a-digital-protection-agency
 
 https://www.newyorker.com/tech/elements/cambridge-analytica-and-our-lives-inside-the-surveillance-machine
