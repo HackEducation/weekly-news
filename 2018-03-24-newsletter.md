@@ -6,6 +6,10 @@ https://codeactsineducation.wordpress.com/2018/03/23/learning-from-psychographic
 
 https://dancohen.org/2018/03/21/back-to-the-blog/
 
+https://www.nytimes.com/2018/03/21/arts/columbia-university-1968-protest.html
+
+https://www.theatlantic.com/family/archive/2018/03/childhood-conformity/554453/
+
 http://autumm.edtech.fm/2018/03/23/platform-literacy-in-a-time-of-mass-gaslighting-or-that-time-i-asked-cambridge-analytica-for-my-data/
 
 https://librarianshipwreck.wordpress.com/2018/03/22/facebook-to-delete-or-not-to-delete/
