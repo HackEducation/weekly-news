@@ -1,5 +1,13 @@
 ## HEWN, No. 258
 
+https://www.motherjones.com/politics/2018/03/cloak-and-data-cambridge-analytica-robert-mercer/
+
+https://codeactsineducation.wordpress.com/2018/03/23/learning-from-psychographics/
+
+https://dancohen.org/2018/03/21/back-to-the-blog/
+
+http://autumm.edtech.fm/2018/03/23/platform-literacy-in-a-time-of-mass-gaslighting-or-that-time-i-asked-cambridge-analytica-for-my-data/
+
 https://librarianshipwreck.wordpress.com/2018/03/22/facebook-to-delete-or-not-to-delete/
 
 https://www.theverge.com/2018/3/22/17151430/bankruptcy-mt-gox-liabilities-bitcoin
