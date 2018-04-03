@@ -1,5 +1,7 @@
 ## HEWN, No. 260
 
+https://theoutline.com/post/4024/andrew-sullivan-sam-harris-jordan-peterson-the-bell-curve?zd=1&zi=amkrclal
+
 https://thefrailestthing.com/2018/03/31/facebooks-very-own-mr-kurtz/
 
 https://www.newyorker.com/magazine/2018/04/02/the-mind-expanding-ideas-of-andy-clark
