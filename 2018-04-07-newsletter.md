@@ -1,5 +1,7 @@
 ## HEWN, No. 260
 
+https://thefrailestthing.com/2018/04/03/beyond-the-trolley-car-the-moral-pedagogy-of-ethical-tools/
+
 https://theoutline.com/post/4024/andrew-sullivan-sam-harris-jordan-peterson-the-bell-curve?zd=1&zi=amkrclal
 
 https://thefrailestthing.com/2018/03/31/facebooks-very-own-mr-kurtz/
