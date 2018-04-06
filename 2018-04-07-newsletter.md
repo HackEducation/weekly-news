@@ -9,3 +9,9 @@ https://thefrailestthing.com/2018/03/31/facebooks-very-own-mr-kurtz/
 https://www.newyorker.com/magazine/2018/04/02/the-mind-expanding-ideas-of-andy-clark
 
 https://www.theatlantic.com/technology/archive/2018/04/silicon-valley-under-attack-no-words/557249/
+
+https://www.newyorker.com/news/daily-comment/why-mark-zuckerberg-should-read-a-tree-grows-in-brooklyn
+
+https://contexts.org/articles/the-algorithmic-rise-of-the-alt-right/
+
+
