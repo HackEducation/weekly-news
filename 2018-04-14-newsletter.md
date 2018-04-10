@@ -9,3 +9,5 @@ http://www.longviewoneducation.org/beyond-champions-pirates/
 http://www.longviewoneducation.org/empowerwashing-education/
 
 https://www.mcsweeneys.net/articles/oregon-trail-is-changing-so-that-we-share-less-of-your-private-dysentery-information
+
+https://www.newyorker.com/magazine/2018/04/16/the-silence-the-legacy-of-childhood-trauma
