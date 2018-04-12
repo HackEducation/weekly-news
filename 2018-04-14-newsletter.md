@@ -1,5 +1,7 @@
 ## HEWN, No. 261
 
+https://www.theatlantic.com/technology/archive/2018/04/the-most-important-exchange-of-the-zuckerberg-hearing/557795/
+
 https://www.wired.com/story/why-zuckerberg-15-year-apology-tour-hasnt-fixed-facebook/
 
 https://theoutline.com/post/4107/what-silicon-valley-literature-gets-wrong
