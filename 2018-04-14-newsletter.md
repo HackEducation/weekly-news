@@ -1,5 +1,7 @@
 ## HEWN, No. 261
 
+https://www.theatlantic.com/technology/archive/2018/04/dot-coms-were-better-than-facebook/557945/
+
 https://medium.com/@janeruffino/a-hammer-is-not-a-solution-3c32715c6b59
 
 https://www.newyorker.com/tech/elements/silicon-valleys-sixty-year-love-affair-with-the-word-tool
