@@ -1,5 +1,7 @@
 ## HEWN, No. 262
 
+https://theoutline.com/post/4190/neopets-was-run-by-scientologists?zd=1&zi=lwjxauco
+
 http://www.wired.co.uk/article/open-letter-mark-zuckerberg-congress
 
 https://thebaffler.com/latest/engineered-for-dystopia-banks
