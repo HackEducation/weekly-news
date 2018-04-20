@@ -1,5 +1,9 @@
 ## HEWN, No. 262
 
+https://www.theverge.com/2018/4/19/17250892/ready-player-one-book-facebook-internet-dystopia
+
+https://www.bloomberg.com/features/2018-palantir-peter-thiel/
+
 https://theoutline.com/post/4190/neopets-was-run-by-scientologists?zd=1&zi=lwjxauco
 
 http://www.wired.co.uk/article/open-letter-mark-zuckerberg-congress
