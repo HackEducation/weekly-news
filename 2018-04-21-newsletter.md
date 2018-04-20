@@ -1,5 +1,7 @@
 ## HEWN, No. 262
 
+https://logicmag.io/04-the-new-octopus/
+
 https://www.theverge.com/2018/4/19/17250892/ready-player-one-book-facebook-internet-dystopia
 
 https://www.bloomberg.com/features/2018-palantir-peter-thiel/
