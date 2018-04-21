@@ -2,6 +2,8 @@
 
 http://hackeducation.com/2018/04/20/asu-gsv
 
+https://slate.com/technology/2018/04/why-arent-privacy-groups-fighting-to-regulate-facebook.html
+
 https://logicmag.io/04-the-new-octopus/
 
 https://www.theverge.com/2018/4/19/17250892/ready-player-one-book-facebook-internet-dystopia
