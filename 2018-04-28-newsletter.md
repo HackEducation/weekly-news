@@ -1,5 +1,7 @@
 ## HEWN, No. 263
 
+http://theweek.com/articles/769419/how-young-men-are-radicalized-online-against-modernity
+
 https://theageofausterity.wordpress.com/2018/04/23/capitalism-with-a-human-face/
 
 http://www.roughtype.com/?p=8378
