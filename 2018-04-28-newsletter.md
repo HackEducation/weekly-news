@@ -12,3 +12,4 @@ https://www.smithsonianmag.com/science-nature/stop-lethal-virus-180965217/
 
 https://twitter.com/i/web/status/989977293685755904
 
+https://www.wired.com/story/detectives-cracked-the-golden-state-killer-case-using-genetics/
