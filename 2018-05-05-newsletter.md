@@ -1,5 +1,7 @@
 ## HEWN, No. 264
 
+https://www.nybooks.com/articles/2018/05/24/big-brother-goes-digital/
+
 https://www.gq.com/story/the-great-high-school-impostor
 
 https://newrepublic.com/article/148186/internet-women-made
