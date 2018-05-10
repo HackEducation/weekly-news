@@ -6,4 +6,4 @@ https://www.theatlantic.com/technology/archive/2018/05/humans-acting-like-robots
 
 http://www.roughtype.com/?p=8394
 
-
+https://www.wired.com/story/google-and-the-rise-of-digital-wellbeing/
