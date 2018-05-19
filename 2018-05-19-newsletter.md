@@ -22,4 +22,6 @@ https://campustechnology.com/articles/2018/05/15/carnegie-mellon-to-offer-underg
 
 graduation speeches
 
+https://librarianshipwreck.wordpress.com/2018/05/18/why-dont-you-go-live-in-a-cave-when-technophiles-cry-troglodyte/
+
 http://utotherescue.blogspot.co.uk/2018/05/what-kind-of-world-do-you-want-to-live.html
