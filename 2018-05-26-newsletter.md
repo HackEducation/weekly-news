@@ -16,3 +16,4 @@ https://www.buzzfeed.com/annehelenpetersen/jason-bateman-arrested-development-in
 
 https://www.theatlantic.com/technology/archive/2018/05/the-lil-tay-saga-reaches-its-logical-conclusion/561116/
 
+http://musicfordeckchairs.com/blog/2018/05/26/writing-to-the-dark/
