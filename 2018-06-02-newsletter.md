@@ -10,4 +10,4 @@ https://www.theatlantic.com/technology/archive/2018/05/elon-musk-should-know-bet
 
 https://kottke.org/18/05/a-brief-history-of-fingerprints
 
-
+https://www.theatlantic.com/technology/archive/2018/05/ring-ring-ring-ring/561545/
