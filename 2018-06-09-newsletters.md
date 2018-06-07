@@ -7,3 +7,7 @@ https://www.nytimes.com/2018/05/25/business/what-advertising-history-says-about-
 History of Yearbooks (The Atlantic)
 
 History of "2 4 6 8" chant (Slate)
+
+https://www.wired.com/story/microsoft-github-code-moderation
+
+http://haveyouheardblog.com/teaching-machines-the-dream-of-automating-the-teaching-profession-goes-way-back/
