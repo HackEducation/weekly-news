@@ -21,3 +21,5 @@ http://www.omaha.com/go/the-story-of-the-nebraska-cowboy-who-invented-ranch-dres
 https://davidbuckingham.net/2018/06/06/the-trouble-with-peppa-pig/
 
 https://vinepair.com/articles/lets-get-metaphysical/
+
+https://www.theatlantic.com/technology/archive/2018/06/why-do-people-sign-yearbooks/561851/
