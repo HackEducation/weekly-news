@@ -8,6 +8,8 @@ History of Yearbooks (The Atlantic)
 
 History of "2 4 6 8" chant (Slate)
 
+https://www.theverge.com/2018/6/7/17437454/mit-ai-psychopathic-reddit-data-algorithmic-bias
+
 https://www.wired.com/story/microsoft-github-code-moderation
 
 http://haveyouheardblog.com/teaching-machines-the-dream-of-automating-the-teaching-profession-goes-way-back/
