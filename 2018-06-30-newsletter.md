@@ -16,4 +16,4 @@ https://www.buzzfeed.com/charliewarzel/yelp-the-red-hen-and-how-all-tech-platfor
 
 https://k12cybersecure.com/blog/hacking-the-iste18-smart-badge/ (plus NYT IOT story and the Ed Week one on harassment of teachers)
 
-
+https://thefrailestthing.com/2018/06/26/eight-theses-regarding-the-society-of-the-disciplinary-spectacle/
