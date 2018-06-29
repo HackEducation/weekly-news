@@ -1,5 +1,13 @@
 ## HEWN, No. 272
 
+https://www.theatlantic.com/technology/archive/2018/06/whos-afraid-of-virginia-wolfenstein/563843/
+
+https://www.wired.com/story/the-delicate-art-of-creating-new-emoji/?mbid=social_twitter_onsiteshare
+
+https://librarianshipwreck.wordpress.com/2018/06/28/challenging-the-tech-companies-from-within/
+
+Book announcement
+
 https://www.nytimes.com/2018/06/20/opinion/why-read-hannah-arendt-now.html
 
 https://thefrailestthing.com/2018/06/24/information-devours-communication/
