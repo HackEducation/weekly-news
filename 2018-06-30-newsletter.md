@@ -1,5 +1,13 @@
 ## HEWN, No. 272
 
+https://belowthesurface.amsterdam/en/vondsten
+
+https://medium.com/@edifiedlistener/listening-as-resistance-42fac0229c70
+
+https://www.longviewoneducation.org/why-we-shouldnt-let-economists-play-with-education/
+
+http://www.roughtype.com/?p=8487
+
 https://www.theatlantic.com/technology/archive/2018/06/whos-afraid-of-virginia-wolfenstein/563843/
 
 https://www.wired.com/story/the-delicate-art-of-creating-new-emoji/?mbid=social_twitter_onsiteshare
