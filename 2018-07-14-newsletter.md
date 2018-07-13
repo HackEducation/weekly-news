@@ -15,3 +15,5 @@ https://thefrailestthing.com/2018/07/07/political-economy-or-ethics-of-technolog
 https://thebaffler.com/salvos/all-effd-up-levine
 
 https://tinyletter.com/annehelenpetersen/letters/selfishness-or-survival
+
+https://brooklynrail.org/2018/07/field-notes/Jobs-Bullshit-and-the-Bureaucratization-of-the-World
