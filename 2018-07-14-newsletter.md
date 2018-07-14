@@ -17,3 +17,5 @@ https://thebaffler.com/salvos/all-effd-up-levine
 https://tinyletter.com/annehelenpetersen/letters/selfishness-or-survival
 
 https://brooklynrail.org/2018/07/field-notes/Jobs-Bullshit-and-the-Bureaucratization-of-the-World
+
+twitter thread on Silicon Valley and USSR
