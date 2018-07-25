@@ -8,3 +8,4 @@ https://www.nybooks.com/daily/2018/07/21/sorry-to-bother-you-boots-rileys-trojan
 
 https://www.gq.com/story/otto-warmbier-north-korea-american-hostage-true-story
 
+https://catapult.co/stories/dreaming-machines-fairy-tales-in-the-age-of-artificial-intelligence
