@@ -2,6 +2,10 @@
 
 https://www.theatlantic.com/technology/archive/2018/07/microfilm-lasts-half-a-millennium/565643/
 
+https://codeactsineducation.wordpress.com/2018/07/26/postgenomic-education-research/
+
+https://www.theatlantic.com/technology/archive/2018/07/facebook-is-fine-even-if-it-is-also-terrible/566162/
+
 https://thefrailestthing.com/2018/07/23/destructive-scale/
 
 https://www.nybooks.com/daily/2018/07/21/sorry-to-bother-you-boots-rileys-trojan-horseplay/
