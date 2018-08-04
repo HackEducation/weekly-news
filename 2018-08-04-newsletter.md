@@ -14,4 +14,4 @@ https://www.thenewatlantis.com/publications/the-tech-backlash-we-really-need
 
 https://larrycuban.wordpress.com/2018/07/28/yes-definitions-of-success-and-failure-in-schooling-have-changed-over-time-part-2/
 
-https://aeon.co/essays/children-learn-best-when-engaged-in-the-living-world-not-on-screens
+http://www.boundary2.org/2018/08/perez/
