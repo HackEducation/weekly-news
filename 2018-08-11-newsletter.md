@@ -1,3 +1,3 @@
-## A New Post
+## HEWN, No. 278
 
-Enter text in [Markdown](http://daringfireball.net/projects/markdown/). Use the toolbar above, or click the **?** button for formatting help.
+Eye doctor -- Hemingway quote -- bifocals
