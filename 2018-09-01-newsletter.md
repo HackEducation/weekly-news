@@ -15,3 +15,7 @@ https://www.nytimes.com/2018/08/28/science/plastics-preservation-getty.html
 https://www.theatlantic.com/politics/archive/2018/08/bill-oliver-education-obama/568621/
 
 https://jacobinmag.com/2018/08/mental-health-psychiatry-class-struggle
+
+https://www.newyorker.com/humor/daily-shouts/mr-men-of-today?mbid=social_facebook
+
+https://www.chronicle.com/article/I-Worked-With-Avital-Ronell-I/244415
