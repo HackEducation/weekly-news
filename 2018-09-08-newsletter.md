@@ -10,3 +10,5 @@ https://twitter.com/i/web/status/1037109781012480001
 
 https://kottke.org/18/09/busytown-2018---bitcoin-miners-mansplainers-and-dog-whistlers
 
+https://itunes.apple.com/us/podcast/so-weve-been-thinking/id1420751676?mt=2 (https://www.stitcher.com/podcast/anchor-podcasts/so-weve-been-thinking)
+
