@@ -7,3 +7,9 @@ https://thefrailestthing.com/2018/09/09/the-deforming-power-of-an-ever-present-a
 https://www.newyorker.com/magazine/2018/09/17/can-mark-zuckerberg-fix-facebook-before-it-breaks-democracy
 
 https://thejosevilson.com/a-measure-of-this-teacher/
+
+https://nplusonemag.com/online-only/online-only/dupe-throat/
+
+https://urgencyofteachers.com/
+
+https://www.nytimes.com/2018/09/08/opinion/sunday/civil-society-library.html
