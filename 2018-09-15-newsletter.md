@@ -21,3 +21,5 @@ https://twitter.com/i/web/status/1040298064097861632
 http://www.richgibson.com/talktoteachers.htm
 
 http://hackeducation.com/2018/09/13/fuck-these-billionaires-and-their-bad-ideas
+
+
