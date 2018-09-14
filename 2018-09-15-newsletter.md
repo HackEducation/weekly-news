@@ -13,3 +13,11 @@ https://nplusonemag.com/online-only/online-only/dupe-throat/
 https://urgencyofteachers.com/
 
 https://www.nytimes.com/2018/09/08/opinion/sunday/civil-society-library.html
+
+https://www.theatlantic.com/magazine/archive/2018/10/losing-the-democratic-habit/568336/
+
+https://twitter.com/i/web/status/1040298064097861632
+
+http://www.richgibson.com/talktoteachers.htm
+
+http://hackeducation.com/2018/09/13/fuck-these-billionaires-and-their-bad-ideas
