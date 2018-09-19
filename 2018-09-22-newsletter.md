@@ -15,3 +15,5 @@ https://thefrailestthing.com/2018/09/16/zuckerbergs-blindness-and-ours/
 https://www.theatlantic.com/family/archive/2018/09/throw-your-childrens-art-away/570379/
 
 https://www.newyorker.com/news/dispatch/was-the-philosopher-julia-kristeva-a-cold-war-collaborator?mbid=social_facebook
+
+https://www.theatlantic.com/technology/archive/2018/09/twitter-reverse-chron/570589/
