@@ -1,5 +1,7 @@
 ## HEWN, No. 284
 
+https://www.wired.com/story/wired25-david-karpf-issues-tech-predictions/
+
 https://points.datasociety.net/media-manipulation-strategic-amplification-and-responsible-journalism-95f4d611f462
 
 https://kottke.org/18/09/how-dwayne-the-rock-johnson-will-become-president
