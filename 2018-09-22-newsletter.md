@@ -2,6 +2,8 @@
 
 http://www.abc.net.au/news/2018-09-18/china-social-credit-a-model-citizen-in-a-digital-dictatorship/10200278
 
+https://www.theatlantic.com/family/archive/2018/09/throw-your-childrens-art-away/570379/
+
 https://www.wired.com/story/wired25-david-karpf-issues-tech-predictions/
 
 https://points.datasociety.net/media-manipulation-strategic-amplification-and-responsible-journalism-95f4d611f462
