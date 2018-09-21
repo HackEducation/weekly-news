@@ -6,6 +6,10 @@ https://points.datasociety.net/media-manipulation-strategic-amplification-and-re
 
 https://kottke.org/18/09/how-dwayne-the-rock-johnson-will-become-president
 
+http://www.vulture.com/2018/09/prince-vault-archivist-michael-howe-interview.html
+
+https://longreads.com/2018/09/18/no-i-will-not-debate-you/
+
 https://www.newyorker.com/news/news-desk/after-the-financial-crisis-wall-street-turned-to-charityand-avoided-justice
 
 https://www.nytimes.com/2018/09/14/sunday-review/politics-disruption-media-technology.html
