@@ -1,5 +1,9 @@
 ## HEWN, No. 285
 
+https://lithub.com/we-really-still-need-howard-zinn/
+
+https://www.vox.com/culture/2018/9/27/17906644/sixteen-candles-rape-culture-1980s-brett-kavanaugh#
+
 https://thesocietypages.org/cyborgology/2018/09/17/regarding-theory-as-technology/
 
 https://www.newyorker.com/news/our-columnists/brett-kavanaugh-donald-trump-and-the-things-men-do-for-other-men
