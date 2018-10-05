@@ -13,3 +13,7 @@ http://hackeducation.com/2018/10/02/history
 https://logicmag.io/05-the-automation-charade/
 
 https://www.theatlantic.com/ideas/archive/2018/10/the-cruelty-is-the-point/572104/
+
+Annie Tan -- The Moth
+
+Mike C's tweets about George S. and who/what you choose to amplify (perhaps connected to the McAfee tweets too)
