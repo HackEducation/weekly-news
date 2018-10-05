@@ -17,3 +17,7 @@ https://www.theatlantic.com/ideas/archive/2018/10/the-cruelty-is-the-point/57210
 Annie Tan -- The Moth
 
 Mike C's tweets about George S. and who/what you choose to amplify (perhaps connected to the McAfee tweets too)
+
+https://www.seanmichaelmorris.com/the-habitus-of-critical-imagination/
+
+https://slate.com/news-and-politics/2018/10/atticus-finch-brett-kavanaugh-john-cornyn-rich-lowry.html
