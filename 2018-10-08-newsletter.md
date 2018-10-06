@@ -1,5 +1,9 @@
 ## HEWN, No. 286
 
+https://www.nytimes.com/2018/10/05/opinion/sunday/emma-gonzalez-parkland.html
+
+https://twitter.com/i/web/status/1048326492197810176
+
 https://mymodernmet.com/dogs-playing-poker-painting/
 
 https://www.wired.com/story/information-terrorists-trying-to-reshape-america/
