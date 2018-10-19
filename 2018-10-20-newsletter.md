@@ -2,6 +2,12 @@
 
 https://www.theatlantic.com/entertainment/archive/2018/10/paddington-bear-and-displaced-child/572848/
 
+https://longreads.com/2018/10/16/living-with-dolly-parton/
+
+http://hackeducation.com/2018/10/18/skinner
+
+https://www.newyorker.com/magazine/2018/10/22/did-uber-steal-googles-intellectual-property
+
 https://www.nytimes.com/2018/10/15/science/gedmatch-genealogy-cold-cases.html (also Warren)
 
 https://slate.com/news-and-politics/2018/10/anger-in-america-trumpism-incivility.html
@@ -21,4 +27,3 @@ http://robinderosa.net/uncategorized/the-library-is-open-palakeynote/
 https://www.vice.com/en_us/article/j53vnk/the-history-of-the-future-of-high-school-v25n3
 
 https://www.nytimes.com/2018/10/16/us/charlottesville-riots-black-students-schools.html?partner=rss&emc=rss
-
