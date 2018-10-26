@@ -7,3 +7,5 @@ https://www.longviewoneducation.org/school-shaming-and-the-reactionary-politics-
 https://www.wired.com/story/alternative-history-of-silicon-valley-disruption/
 
 https://thefrailestthing.com/2018/10/24/in-defense-of-technology-ethics-properly-understood/
+
+https://www.nytimes.com/2018/10/25/magazine/bruno-latour-post-truth-philosopher-science.html
