@@ -12,3 +12,4 @@ http://nymag.com/intelligencer/2018/10/school-shooting-survivors.html
 
 https://thefrailestthing.com/2018/10/26/technology-is-not-neutral-two-ways-of-understanding-the-claim/
 
+https://lareviewofbooks.org/article/in-the-habit
