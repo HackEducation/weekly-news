@@ -14,4 +14,6 @@ https://thefrailestthing.com/2018/10/26/technology-is-not-neutral-two-ways-of-un
 
 https://lareviewofbooks.org/article/in-the-habit
 
-https://www.nytimes.com/2018/11/01/technology/nevada-bitcoin-blockchain-society.html?partner=rss&emc=rss
+https://www.nytimes.com/2018/11/01/technology/nevada-bitcoin-blockchain-society.html
+
+https://communemag.com/dystopias-now/
