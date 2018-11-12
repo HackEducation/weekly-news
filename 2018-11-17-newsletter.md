@@ -11,3 +11,5 @@ https://www.theatlantic.com/technology/archive/2018/11/how-youtubes-algorithm-re
 https://www.nytimes.com/2018/11/08/opinion/sunday/criminal-justice-reforms-race-technology.html
 
 https://www.nytimes.com/2018/11/09/business/yuval-noah-harari-silicon-valley.html
+
+Ideas for topic: WWI and ed-tech
