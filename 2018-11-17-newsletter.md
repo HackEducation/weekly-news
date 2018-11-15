@@ -15,3 +15,7 @@ https://www.nytimes.com/2018/11/08/opinion/sunday/criminal-justice-reforms-race-
 https://www.nytimes.com/2018/11/09/business/yuval-noah-harari-silicon-valley.html
 
 Ideas for topic: WWI and ed-tech
+
+https://www.npr.org/2018/11/14/663059048/a-toy-monkey-that-escaped-nazi-germany-and-reunited-a-family
+
+https://www.theringer.com/music/2018/11/14/18087878/nirvana-unplugged-oral-history-kurt-cobain
