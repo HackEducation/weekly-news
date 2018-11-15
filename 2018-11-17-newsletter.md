@@ -1,5 +1,7 @@
 ## HEWN, No. 292
 
+https://www.nytimes.com/2018/11/14/technology/facebook-data-russia-election-racism.html
+
 https://thefrailestthing.com/2018/11/11/technology-after-the-great-war/
 
 https://www.nytimes.com/2018/11/08/opinion/sunday/criminal-justice-reforms-race-technology.html
