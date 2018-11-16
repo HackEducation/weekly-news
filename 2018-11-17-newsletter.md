@@ -1,5 +1,11 @@
 ## HEWN, No. 292
 
+https://www.theatlantic.com/technology/archive/2018/11/facebook-google-amazon-and-collapse-tech-mythology/575989/
+
+https://www.nytimes.com/interactive/2018/11/15/climate/yellowstone-global-warming.html
+
+https://www.theatlantic.com/technology/archive/2018/11/los-angeles-elon-musk-tunnels-under-neighborhood/575725/
+
 https://www.nytimes.com/2018/11/14/technology/facebook-data-russia-election-racism.html
 
 https://thefrailestthing.com/2018/11/11/technology-after-the-great-war/
