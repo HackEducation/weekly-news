@@ -1,5 +1,7 @@
 ## HEWN, No. 292
 
+https://www.thrillist.com/eat/portland/stanichs-closed-will-it-reopen-burger-quest
+
 https://www.theatlantic.com/technology/archive/2018/11/facebook-google-amazon-and-collapse-tech-mythology/575989/
 
 https://www.nytimes.com/interactive/2018/11/15/climate/yellowstone-global-warming.html
