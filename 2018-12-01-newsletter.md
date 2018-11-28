@@ -10,5 +10,4 @@ https://www.edsurge.com/news/2018-11-26-indian-online-tutoring-startup-scores-11
 
 Robin De Rosa's talk
 
-
-
+https://twitter.com/SesameWorkshop/status/1067494350328868866
