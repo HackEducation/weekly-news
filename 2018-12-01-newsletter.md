@@ -2,6 +2,12 @@
 
 Social media break
 
+https://www.vanityfair.com/news/2018/11/sheryl-sandberg-harvard-business-school-leadership
+
+https://www.nytimes.com/2018/11/29/technology/george-soros-facebook-sheryl-sandberg.html
+
+https://kottke.org/18/11/the-100-best-pens
+
 https://www.eater.com/2018/11/19/18099127/bread-silicon-valley-sourdough-tech-bros-tartine-chad-robertson
 
 https://thefrailestthing.com/2018/11/25/ai-hype-and-the-fraying-social-fabric/
