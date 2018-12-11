@@ -4,6 +4,12 @@
 
 (Why is "The mother of all demos" such a big deal?!)
 
+https://www.1843magazine.com/features/meet-alexa-inside-the-mind-of-a-digital-native
+
+https://www.newyorker.com/magazine/2018/12/17/julia-louis-dreyfus-acts-out
+
+http://www.uncomputing.org/?p=1993
+
 https://www.wired.com/story/how-doug-engelbart-pulled-off-the-mother-of-all-demos/
 
 https://www.wired.com/story/50-years-later-we-still-dont-grasp-the-mother-of-all-demos/
