@@ -15,3 +15,11 @@ https://www.wired.com/story/how-doug-engelbart-pulled-off-the-mother-of-all-demo
 https://www.wired.com/story/50-years-later-we-still-dont-grasp-the-mother-of-all-demos/
 
 https://www.nytimes.com/2018/12/10/world/asia/twitter-jack-dorsey-myanmar-rohingya.html
+
+https://www.thetrace.org/features/remington-rifle-mississippi-brothers-shooting/
+
+https://www.washingtonpost.com/lifestyle/2018/12/12/dear-tech-companies-i-dont-want-see-pregnancy-ads-after-my-child-was-stillborn/
+
+
+
+
