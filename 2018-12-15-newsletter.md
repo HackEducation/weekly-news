@@ -20,6 +20,9 @@ https://www.thetrace.org/features/remington-rifle-mississippi-brothers-shooting/
 
 https://www.washingtonpost.com/lifestyle/2018/12/12/dear-tech-companies-i-dont-want-see-pregnancy-ads-after-my-child-was-stillborn/
 
+https://paleofuture.gizmodo.com/kids-in-1904-had-wild-predictions-about-the-future-of-2-1830988336
 
+https://hapgood.us/2018/12/13/the-homeostatic-fallacy-and-misinformation-literacy/
 
+https://twitter.com/Samantharhill/status/1073274850918219778
 
