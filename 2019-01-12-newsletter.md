@@ -8,4 +8,6 @@ http://edutechnicalities.com/film/waiting-for-o-superman/
 
 https://thebaffler.com/outbursts/surely-youre-a-creep-mr-feynman-mcneill
 
-https://thebaffler.com/salvos/fables-of-school-reform-watters?utm_campaign=enjoy&utm_source=after-the-storm-ehrenreich
+https://thebaffler.com/salvos/fables-of-school-reform-watters
+
+Tressie's book -- "competency"
